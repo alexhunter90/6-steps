@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 35 of 72 documents translated.**
+**Progress: 36 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -49,7 +49,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Achieving Step One Corresponds to “Stream-Entry” in the Āgama Sutras and “Nirvikalpa Samadhi” in Yogic Science](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E8%BE%BE%E6%88%90%E5%85%AD%E6%AD%A5%E9%AA%A4%E7%AC%AC%E4%B8%80%E6%AD%A5%EF%BC%8C%E5%AF%B9%E5%BA%94%E9%98%BF%E5%90%AB%E7%BB%8F%E4%B8%AD%E8%AE%B2%E7%9A%84%E3%80%8C%E5%85%A5%E6%B5%81%E3%80%8D%EF%BC%8C%E7%91%9C%E4%BC%BD%E7%A7%91%E5%AD%A6%E4%B8%AD%E7%9A%84%E3%80%8C%E6%B6%85%E6%AF%94%E5%8D%A1%E5%B8%95%E4%B8%89%E6%91%A9%E5%9C%B0%E3%80%8D.en.md)
 - [Why Does the Sedona Method Stress the Word “Original”?](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E4%BB%80%E4%B9%88%E5%9C%A3%E5%A4%9A%E7%BA%B3%E9%87%8A%E6%94%BE%E6%B3%95%E5%BC%BA%E8%B0%83%E5%8E%9F%E5%A7%8B%E4%BA%8C%E5%AD%97%EF%BC%9F.en.md)
 - [Feng on the Six Steps, Part 1 | Editor’s Preface: Release by Following the Six Steps All the Way](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD1%E4%B8%A8%E7%BC%96%E8%80%85%E5%BA%8F%EF%BC%9A%E8%B4%AF%E5%BD%BB%E5%85%AD%E6%AD%A5%E9%AA%A4%E5%8E%BB%E9%87%8A%E6%94%BE.en.md)
-- Feng on the Six Steps, Part 2 | How I Did It *(not yet translated)*
+- [Feng on the Six Steps, Part 2 | How I Did It](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD2%E4%B8%A8%E6%88%91%E5%A6%82%E4%BD%95%E5%81%9A%E5%88%B0.en.md)
 - Feng on the Six Steps, Part 3 | Using Step One to Remind Yourself to Release *(not yet translated)*
 - Feng on the Six Steps, Part 4 | Right Now, Do I Want Freedom, or Control and Approval? *(not yet translated)*
 - Feng on the Six Steps, Part 5 | How to Do Step One — Wanting Freedom More Than the World (1) *(not yet translated)*
