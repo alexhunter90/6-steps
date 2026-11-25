@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 42 of 72 documents translated.**
+**Progress: 43 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -56,7 +56,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Feng on the Six Steps, Part 6 | How to Do Step One — Wanting Freedom More Than the World (2)](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD6%E4%B8%A8%E5%A6%82%E4%BD%95%E5%81%9A%E5%88%B0%E7%AC%AC%E4%B8%80%E6%AD%A5%E6%83%B3%E8%A6%81%E8%87%AA%E7%94%B1%E8%B6%85%E8%BF%87%E6%83%B3%E8%A6%81%E4%B8%96%E7%95%8C%EF%BC%9F%EF%BC%88%E4%BA%8C%EF%BC%89.en.md)
 - [Feng on the Six Steps, Part 7 | How to Do Step One — Wanting Freedom More Than the World (3)](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD7%E4%B8%A8%E5%A6%82%E4%BD%95%E5%81%9A%E5%88%B0%E7%AC%AC%E4%B8%80%E6%AD%A5%E6%83%B3%E8%A6%81%E8%87%AA%E7%94%B1%E8%B6%85%E8%BF%87%E6%83%B3%E8%A6%81%E4%B8%96%E7%95%8C%EF%BC%9F%EF%BC%88%E4%B8%89%EF%BC%89.en.md)
 - [Feng on the Six Steps, Part 8 | How to Do Step One — Wanting Freedom More Than the World (4)](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD8%E4%B8%A8%E5%A6%82%E4%BD%95%E5%81%9A%E5%88%B0%E7%AC%AC%E4%B8%80%E6%AD%A5%E6%83%B3%E8%A6%81%E8%87%AA%E7%94%B1%E8%B6%85%E8%BF%87%E6%83%B3%E8%A6%81%E4%B8%96%E7%95%8C%EF%BC%9F%EF%BC%88%E5%9B%9B%EF%BC%89.en.md)
-- Feng on the Six Steps, Part 9 | How to Move Towards Freedom Faster *(not yet translated)*
+- [Feng on the Six Steps, Part 9 | How to Move Towards Freedom Faster](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD9%E4%B8%A8%E5%A6%82%E4%BD%95%E6%9B%B4%E5%BF%AB%E9%80%9F%E5%9C%B0%E8%B5%B0%E5%90%91%E8%87%AA%E7%94%B1.en.md)
 - Feng on the Six Steps, Part 10 | The Longing for Freedom Is Not Built on Disgust with the World *(not yet translated)*
 - Feng on the Six Steps, Part 11 | Feng Tells How He Achieved Step One — Wanting Freedom More Than the World *(not yet translated)*
 - Feng on the Six Steps, Part 12 | Feng: I Saw What Lester Said — All Happiness Comes from Within — and I Decided to Go Free *(not yet translated)*
