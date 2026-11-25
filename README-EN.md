@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 68 of 72 documents translated.**
+**Progress: 70 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -85,8 +85,8 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Appendix 5: Every Time You Release, You Help Everyone](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E4%BA%94%EF%BC%9A%E4%BD%A0%E6%AF%8F%E4%B8%80%E6%AC%A1%E9%87%8A%E6%94%BE%E4%BC%9A%E5%B8%AE%E5%8A%A9%E5%88%B0%E6%89%80%E6%9C%89%E4%BA%BA.en.md)
 - [Appendix 6: The Moment You Think You’ve Realised Something, You Go Astray](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E5%85%AD%EF%BC%9A%E4%B8%80%E6%9C%89%E6%89%80%E6%82%9F%EF%BC%8C%E4%BE%BF%E8%B5%B0%E6%AD%AA%E8%B7%AF.en.md)
 - [Appendix 7: Men and Women Each Have Strengths in Releasing; Only by Balancing Them Do You Reach the End](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E4%B8%83%20%E7%94%B7%E6%80%A7%E4%B8%8E%E5%A5%B3%E6%80%A7%E5%9C%A8%E9%87%8A%E6%94%BE%E4%B8%AD%E5%90%84%E6%9C%89%E4%BC%98%E5%8A%BF%EF%BC%8C%E5%B9%B3%E8%A1%A1%E7%89%B9%E6%80%A7%E5%90%8E%EF%BC%8C%E6%89%8D%E8%83%BD%E5%88%B0%E8%BE%BE%E7%BB%88%E7%82%B9.en.md)
-- Appendix 8 — Feng: Let’s Join Hands to Present the Original Releasing Process, Pure, to Everyone *(not yet translated)*
-- Appendix 9: Once You Have Risen, Don’t Forget to Help Others — It Furthers Your Own Releasing *(not yet translated)*
+- [Appendix 8 — Feng: Let’s Join Hands to Present the Original Releasing Process, Pure, to Everyone](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E5%85%AB%20%E9%A3%8E%EF%BC%9A%E8%AE%A9%E6%88%91%E4%BB%AC%E6%90%BA%E6%89%8B%E6%8A%8A%E5%8E%9F%E5%A7%8B%E9%87%8A%E6%94%BE%E6%B5%81%E7%A8%8B%E7%BA%AF%E6%AD%A3%E5%9C%B0%E5%B1%95%E7%8E%B0%E5%9C%A8%E6%89%80%E6%9C%89%E4%BA%BA%E9%9D%A2%E5%89%8D.en.md)
+- [Appendix 9: Once You Have Risen, Don’t Forget to Help Others — It Furthers Your Own Releasing](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E4%B9%9D%20%E5%9C%A8%E8%87%AA%E5%B7%B1%E6%8F%90%E5%8D%87%E4%B9%8B%E5%90%8E%EF%BC%8C%E5%8B%BF%E5%BF%98%E5%B8%AE%E5%8A%A9%E4%BB%96%E4%BA%BA%EF%BC%8C%E4%BB%A5%E4%BF%83%E8%BF%9B%E8%87%AA%E5%B7%B1%E8%BF%9B%E4%B8%80%E6%AD%A5%E5%9C%B0%E9%87%8A%E6%94%BE.en.md)
 
 ## Other documents in the repository (not listed in the original contents)
 
