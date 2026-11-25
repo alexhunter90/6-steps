@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 45 of 72 documents translated.**
+**Progress: 46 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -59,7 +59,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Feng on the Six Steps, Part 9 | How to Move Towards Freedom Faster](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD9%E4%B8%A8%E5%A6%82%E4%BD%95%E6%9B%B4%E5%BF%AB%E9%80%9F%E5%9C%B0%E8%B5%B0%E5%90%91%E8%87%AA%E7%94%B1.en.md)
 - [Feng on the Six Steps, Part 10 | The Longing for Freedom Is Not Built on Disgust with the World](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD10%E4%B8%A8%E5%AF%B9%E8%87%AA%E7%94%B1%E7%9A%84%E6%B8%B4%E6%9C%9B%E4%B8%8D%E6%98%AF%E5%BB%BA%E7%AB%8B%E5%9C%A8%E5%AF%B9%E4%B8%96%E7%95%8C%E7%9A%84%E5%8E%8C%E6%81%B6%E4%B8%8A.en.md)
 - [Feng on the Six Steps, Part 11 | Feng Tells How He Achieved Step One — Wanting Freedom More Than the World](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD11%E4%B8%A8%E9%A3%8E%E8%AE%B2%E8%BF%B0%E4%BB%96%E5%A6%82%E4%BD%95%E8%BE%BE%E6%88%90%E7%AC%AC%E4%B8%80%E6%AD%A5%E6%83%B3%E8%A6%81%E8%87%AA%E7%94%B1%E8%B6%85%E8%BF%87%E6%83%B3%E8%A6%81%E4%B8%96%E7%95%8C.en.md)
-- Feng on the Six Steps, Part 12 | Feng: I Saw What Lester Said — All Happiness Comes from Within — and I Decided to Go Free *(not yet translated)*
+- [Feng on the Six Steps, Part 12 | Feng: I Saw What Lester Said — All Happiness Comes from Within — and I Decided to Go Free](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD12%E4%B8%A8%E9%A3%8E%EF%BC%9A%E6%88%91%E7%9C%8B%E5%88%B0%E4%BA%86%E8%8E%B1%E6%96%AF%E7%89%B9%E8%AF%B4%E7%9A%84%E6%89%80%E6%9C%89%E5%BF%AB%E4%B9%90%E9%83%BD%E6%9D%A5%E8%87%AA%E5%86%85%E5%9C%A8%EF%BC%8C%E6%88%91%E5%86%B3%E5%AE%9A%E5%8E%BB%E8%B5%B0%E5%90%91%E8%87%AA%E7%94%B1.en.md)
 - Feng on the Six Steps, Part 13 | If You Have Really Decided on Freedom, You’ll Do It Now; If You Have Really Decided, You Won’t Stop Until You Get There *(not yet translated)*
 - Feng on the Six Steps, Part 14 | Whether You Decide on Freedom Is Entirely Your Free Will — No One and Nothing Can Decide It for You *(not yet translated)*
 - Untitled (2 December 2021) *(not yet translated)*
