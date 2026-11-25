@@ -3,13 +3,13 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 0 of 72 documents translated.**
+**Progress: 2 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
 
-- Six Steps to Freedom *(not yet translated)*
-- A Letter from Kam Bakhshi *(not yet translated)*
+- [Six Steps to Freedom](Six%20Steps%20to%20Freedom%20%E8%87%AA%E7%94%B1%E5%85%AD%E6%AD%A5.en.md)
+- [A Letter from Kam Bakhshi](Kam%20Bakhsh%E7%9A%84%E4%B8%80%E5%B0%81%E4%BF%A1.en.md)
 
 ## WeChat account “The Shortcut to Freedom” (通往自由的捷径)
 
