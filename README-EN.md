@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 61 of 72 documents translated.**
+**Progress: 62 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -78,7 +78,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Feng on the Six Steps: Step 4](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%20Step%204.en.md)
 - [Feng on the Six Steps: Step 5](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%20Step%205.en.md)
 - [Feng on the Six Steps: Step 6](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%20Step%206.en.md)
-- Appendix 1 — Feng: Once I Experienced How Simple and Efficient Releasing Is, I Dropped Every Other Method *(not yet translated)*
+- [Appendix 1 — Feng: Once I Experienced How Simple and Efficient Releasing Is, I Dropped Every Other Method](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E4%B8%80%20%E9%A3%8E%EF%BC%9A%E4%BD%93%E9%AA%8C%E5%88%B0%E9%87%8A%E6%94%BE%E7%9A%84%E7%AE%80%E5%8D%95%E9%AB%98%E6%95%88%E5%90%8E%EF%BC%8C%E6%88%91%E6%94%BE%E4%B8%8B%E4%BA%86%E5%85%B6%E4%BB%96%E6%89%80%E6%9C%89%E6%96%B9%E6%B3%95.en.md)
 - Appendix 2 — Feng: Beyond the Six Steps You Need Nothing Else; Whatever Happens, It’s Still Just the Six Steps *(not yet translated)*
 - Appendix 3 — Feng: Follow the Six Steps Through — Either You Finish It in a Month or Two, or You Never Will *(not yet translated)*
 - Appendix 4: Take Full Responsibility for the Whole World You Create, Stay Conscious of It, and You Can Consciously Create What You Want *(not yet translated)*
