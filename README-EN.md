@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 29 of 72 documents translated.**
+**Progress: 30 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -43,7 +43,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [[On Freedom] Why Do I Play This Game of Being a Limited Body?](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%90%E5%85%B3%E4%BA%8E%E8%87%AA%E7%94%B1%E3%80%91%E4%B8%BA%E4%BB%80%E4%B9%88%E6%88%91%E8%A6%81%E7%8E%A9%E8%BF%99%E5%9C%BA%E6%88%90%E4%B8%BA%E6%9C%89%E9%99%90%E8%BA%AB%E4%BD%93%E7%9A%84%E6%B8%B8%E6%88%8F%EF%BC%9F.en.md)
 - [You Can’t Force Yourself to Release — You Release Only When You See What It Does for You, So Keep Confirming Your Gains and Your Direction](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E4%BD%A0%E6%97%A0%E6%B3%95%E9%80%BC%E8%87%AA%E5%B7%B1%E9%87%8A%E6%94%BE%EF%BC%8C%E4%BD%A0%E5%8F%AA%E6%9C%89%E7%9C%8B%E5%88%B0%E9%87%8A%E6%94%BE%E5%B8%A6%E7%BB%99%E8%87%AA%E5%B7%B1%E5%A5%BD%E5%A4%84%E6%89%8D%E4%BC%9A%E9%87%8A%E6%94%BE%EF%BC%8C%E6%89%80%E4%BB%A5%E8%AF%B7%E4%B8%8D%E6%96%AD%E7%A1%AE%E8%AE%A4%E8%87%AA%E5%B7%B1%E9%87%8A%E6%94%BE%E7%9A%84%E6%94%B6%E8%8E%B7%E5%8F%8A%E4%BD%A0%E7%9A%84%E6%96%B9%E5%90%91.en.md)
 - [Follow the Process: Just Release Well This One Time, Right Now](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E6%8C%89%E7%85%A7%E6%B5%81%E7%A8%8B%EF%BC%8C%E9%87%8A%E6%94%BE%E5%A5%BD%E5%BD%93%E4%B8%8B%E8%BF%99%E4%B8%80%E6%AC%A1%E5%B0%B1%E5%A5%BD.en.md)
-- Constant Releasing Is Important — and Simple *(not yet translated)*
+- [Constant Releasing Is Important — and Simple](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E6%8C%81%E7%BB%AD%E9%87%8A%E6%94%BE%E5%BE%88%E9%87%8D%E8%A6%81%EF%BC%8C%E4%B9%9F%E5%BE%88%E7%AE%80%E5%8D%95.en.md)
 - When You Release Constantly, You Withdraw Automatically; When You Resolve to Go Within, Nothing and No One Can Disturb You *(not yet translated)*
 - Feng Shares: On Resisting, Being Unwilling, and Avoiding Releasing *(not yet translated)*
 - Achieving Step One Corresponds to “Stream-Entry” in the Āgama Sutras and “Nirvikalpa Samadhi” in Yogic Science *(not yet translated)*
