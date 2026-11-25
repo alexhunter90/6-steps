@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 20 of 72 documents translated.**
+**Progress: 21 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -31,7 +31,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Conversations with the Master | Every Time You Release, You Help Everyone and the Harmonious Working of the Universe](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%B8%8E%E5%A4%A7%E5%B8%88%E7%9A%84%E5%AF%B9%E8%AF%9D%EF%BC%9A%E4%BD%A0%E6%AF%8F%E4%B8%80%E6%AC%A1%E9%87%8A%E6%94%BE%E9%83%BD%E4%BC%9A%E5%B8%AE%E5%8A%A9%E5%88%B0%E6%89%80%E6%9C%89%E4%BA%BA%E4%B8%8E%E5%AE%87%E5%AE%99%E7%9A%84%E5%92%8C%E8%B0%90%E8%BF%90%E4%BD%9C.en.md)
 - [Conversations with the Master | From 1970 to 2090, Only the Release Method Can Take You to Freedom](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%B8%8E%E5%A4%A7%E5%B8%88%E7%9A%84%E5%AF%B9%E8%AF%9D%EF%BC%9A1970%E5%B9%B4%E2%80%94%E2%80%942090%E5%B9%B4%E5%8F%AA%E6%9C%89%E9%87%8A%E6%94%BE%E6%B3%95%E8%83%BD%E5%A4%9F%E5%88%B0%E8%BE%BE%E8%87%AA%E7%94%B1.en.md)
 - [Conversations with the Master | The Secret of Success in Going Free, and the Departure of the Masters](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%B8%8E%E5%A4%A7%E5%B8%88%E7%9A%84%E5%AF%B9%E8%AF%9D%EF%BC%9A%E8%8E%B7%E5%BE%97%E8%87%AA%E7%94%B1%E7%9A%84%E6%88%90%E5%8A%9F%E7%A7%98%E8%AF%80%E4%B8%8E%E5%A4%A7%E5%B8%88%E4%BB%AC%E7%9A%84%E7%A6%BB%E5%BC%80.en.md)
-- Some Explanations from Lester about the Release Method *(not yet translated)*
+- [Some Explanations from Lester about the Release Method](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E8%8E%B1%E6%96%AF%E7%89%B9%E5%AF%B9%E9%87%8A%E6%94%BE%E6%B3%95%E7%9A%84%E4%B8%80%E4%BA%9B%E8%AF%B4%E6%98%8E.en.md)
 
 ## WeChat account “Release Method Diamond Island” (释放法钻石岛)
 
