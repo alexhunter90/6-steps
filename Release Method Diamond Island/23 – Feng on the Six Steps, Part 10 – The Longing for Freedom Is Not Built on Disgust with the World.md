@@ -1,0 +1,97 @@
+# Feng on the Six Steps, Part 10 | The Longing for Freedom Is Not Built on Disgust with the World
+
+*Original: [《风谈六步骤》连载10丨对自由的渴望不是建立在对世界的厌恶上](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD10%E4%B8%A8%E5%AF%B9%E8%87%AA%E7%94%B1%E7%9A%84%E6%B8%B4%E6%9C%9B%E4%B8%8D%E6%98%AF%E5%BB%BA%E7%AB%8B%E5%9C%A8%E5%AF%B9%E4%B8%96%E7%95%8C%E7%9A%84%E5%8E%8C%E6%81%B6%E4%B8%8A.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words said in English in the original are kept as they were said and shown in italics.*
+
+> **Translator's note:** Lester's words here are translated from the Chinese; his original English isn't in the repository. The English words that appear in brackets in the Chinese (*attachment*, *aversion*, *subtle*, *ALL*) are kept.
+
+---
+
+Original article · from the series *Feng on the Six Steps* · Release Method Diamond Island · 24 February 2022, 11:46 · Filed under topic: #FengOnTheSixSteps serial (13 articles)
+
+*(Account banner:)* **Lester:** “You are infinite being right now. You always have been and you always will be; you have no choice about that. Your only choice is to identify with being infinite being, or to identify with being a limited ego.” **Feng:** “Doing releasing is choosing to identify with your infinite being.” · 238 original articles
+
+## ► The longing for freedom is not built on disgust with the world
+
+> In releasing, you'll naturally discover that the world is suffering and that all happiness comes from infinite being. What makes you suffer is just disgust with the world. That isn't wanting freedom; it's called being disgusted with the world. Disgust and craving are two sides of one thing, and they appear together. When you're disgusted with the world, it isn't that you want freedom. You feel the world isn't good enough — you want a better world.
+>
+> — Feng
+
+---
+
+## 01
+
+**14 November 2020**
+
+**Feng:** Lester said that aversion is usually suppressed more deeply. Aversion to the world, like craving for the world, is wanting the world.
+
+So, when it comes to releasing on goals, you have to actually achieve them. If you can't achieve your goal, there must still be an “I can't” program suppressed deep down. So when Lester stresses “getting everything through releasing”, you need to really do it, not replace it with a limiting idea.
+
+For every craving there is an aversion. *attachment and aversion* (craving and aversion) come in pairs.
+
+What you want is craving; what you don't want is aversion. But both are a kind of “wanting” — just two different directions, *different direction*.
+
+> **Lester:** You must be a winner. You must achieve your goals, so that you pull out the “anti-winning, anti-goal” programs and eliminate them. Compared with your craving for the world, your aversion to the world is stronger and more *subtle*. So when you go to be a winner, when you pursue goals, overcome your aversion. To clear the garbage out, you need to be a winner.
+>
+> **Student:** So people's aversion to the world is stronger?
+>
+> **Lester:** Your aversion is stronger and more subtle than your craving. Your cravings are obvious: I want this, I want that, I want money, I want good looks. Those are plain to see. But in fact, the things you don't want, you choose not to look at, and then this develops mechanisms of resistance, suppression and opposition. So on your way to becoming a winner, goals are very important.
+>
+> — From *You Must Win Your Goals*
+
+---
+
+> **Lester:** Aversion (*aversion*) to the world is hard to see, but your cravings (*attachments*) are obvious; you're chasing them all the time. But the things you're averse to, you push away. So when you go after a goal, the aversion comes up (the opposition takes the stage) — things like “I'm afraid I can't do it, I'm afraid I'm not able to”, and everything of that kind.
+>
+> So this (the goal) is a hook that draws out “aversion to the world” and brings it into view, so that you can let it go. If you aren't aware of it, you can't see it or deal with it. So achieving things in this world (through releasing) is a way of getting rid of the negative.
+>
+> The only reason the world doesn't provide you with plenty, wealth and every abundance is that you have opposite thoughts, and they're suppressed. When you work to get things in the world, the opposite feelings come to the surface, and then you (can) release them. Because if you can't succeed, it's because you're holding on to programs that disappoint you (hold you down), and you don't see them.
+>
+> What you dislike, don't want to see, don't want to be, want to avoid — that is what you're averse to. And the opposite side is craving: what you want to hold on to (what you want to keep). These are the two key words: craving and aversion. They keep us bound. If you are everything (*ALL*), how could you have craving or aversion? There is nothing but you. In the end you feel: the universe is mine — from infinity to infinity, the universe is mine. That's it. Ha ha.
+>
+> — From *Getting High and Releasing Further*
+
+---
+
+## 02
+
+**31 December 2020**
+
+**Question:** (When releasing on a goal) there can be a time gap in between, can't there? For example, releasing for a month before it comes about.
+
+**Feng:** It doesn't need a month. A month is the time Lester gave for going the whole way. No worldly goal takes more than two weeks of releasing. Just release constantly — release constantly until the goal comes about.
+
+If you decide it will come about, it will still come, even something you don't want. If you decide it will come about, it will come. That means anything impossible becomes possible once released. Even if you're not hungry now, you can decide to eat, because you know you can. Goals are the same. Goals aren't there so that you achieve the goal itself; they're there to pull out your opposing programs. Lester valued goals because you need to prove to yourself that you can do it. The most important purpose of goals is to hook out your aversions, because those are quite subtle.
+
+**TGZ2:** It feels more subtle the higher you go, because as you go higher, the mind has fewer thoughts. I can understand “craving” in terms of “wanting”, but I don't really understand aversion.
+
+**Feng:** Craving and aversion come in pairs: craving for what you want, aversion to what you don't want.
+
+**Ultimate Freedom:** Sometimes I feel the world is especially boring and pointless.
+
+**Feng:** Disgust with the world, right?
+
+**Vian:** Feng's saying our disgust with the world is also holding back our freedom, right?
+
+**Feng:** Disgust and craving appear together. When you're disgusted with the world, it isn't that you want freedom. You feel the world isn't good enough — you want a better world.
+
+If you can't do it in one month, and you can't do it in two, then you're not on the Six Steps. This thing is either simple or impossible. On the Six Steps, you'll reach freedom in a month or two. Off the Six Steps, you won't reach freedom. Taking little bites for many years is just procrastinating; it won't be finished by procrastinating.
+
+**Wenlan:** Feng, to be free in one or two months, how much time a day do I need to release?
+
+**Feng:** Twenty-four hours.
+
+---
+
+Related reading:
+
+1. [Follow the Process: Just Release Well This One Time, Right Now](08%20%E2%80%93%20Follow%20the%20Process%20%E2%80%93%20Just%20Release%20Well%20This%20One%20Time%2C%20Right%20Now.md)
+2. [Constant Releasing Is Important — and Simple](09%20%E2%80%93%20Constant%20Releasing%20Is%20Important%20%E2%80%94%20and%20Simple.md)
+3. [On Resisting, Being Unwilling, and Avoiding Releasing](11%20%E2%80%93%20Feng%20Shares%20%E2%80%93%20On%20Resisting%2C%20Being%20Unwilling%2C%20and%20Avoiding%20Releasing.md)
+4. [When You Release Constantly, You Withdraw Automatically; When You Resolve to Go Within, Nothing and No One Can Disturb You](10%20%E2%80%93%20When%20You%20Release%20Constantly%2C%20You%20Withdraw%20Automatically%3B%20When%20You%20Resolve%20to%20Go%20Within%2C%20Nothing%20and%20No%20One%20Can%20Disturb%20You.md)
+5. [You Can't Force Yourself to Release — You Release Only When You See What It Does for You…](07%20%E2%80%93%20You%20Can%27t%20Force%20Yourself%20to%20Release%20%E2%80%94%20You%20Release%20Only%20When%20You%20See%20What%20It%20Does%20for%20You%2C%20So%20Keep%20Confirming%20Your%20Gains%20and%20Your%20Direction.md)
+
+---
+
+> **Translator's note:** *You Must Win Your Goals* and *Getting High and Releasing Further* are Chinese titles of Lester texts translated by members of the group. The original English titles may differ. **TGZ2, Ultimate Freedom, Vian and Wenlan** are group members.

@@ -1,0 +1,89 @@
+# Feng's Talks on the Six Steps (4) — 22 October 2020
+
+*Original: [风对六步骤的谈话（四）](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E9%A3%8E%E5%AF%B9%E5%85%AD%E6%AD%A5%E9%AA%A4%E7%9A%84%E8%B0%88%E8%AF%9D%EF%BC%88%E5%9B%9B%EF%BC%89.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words that Feng said in English in the original are kept as he said them and shown in italics.*
+
+---
+
+The Shortcut to Freedom · posted 6 March 2021, 12:02
+
+Date of talk: 22 October 2020
+
+**Feng:**
+Someone just messaged me privately to point out that the step of checking whether you've become happier wasn't in the guidance I gave before my retreat; it was only added in the guidance of the last couple of days. That's true.
+
+It's because, while I was releasing in retreat, I verified the Six Steps for myself. There are some very subtle things in them — momentum, for example. Wanting freedom needs momentum.
+
+Every time you remind yourself of Step Six, it gives your Step One a push, at a very basic, subtle level. This will greatly speed up your releasing, because the later steps then get carried out naturally.
+
+So remind yourself of Step Six and Step One. The key word in Step Six is “more”. Every release makes you happier, lighter and freer. That makes you want freedom more.
+
+Notice that it's *every* release.
+
+If you get stuck even once, you won't want to release. The momentum of avoidance will quickly pull you in the opposite direction.
+
+Remember what I said a few days ago? The whole mind is wanting, so until you're free, you'll always have wants.
+
+The difference is *how to direct it*: whether you direct it towards freedom or towards limitation.
+
+Wanting freedom points you towards continuing to release. That is, you do it once, and you know that next time you'll feel better and experience more freedom. So naturally you want to do it a second time.
+
+---
+
+**Question:**
+When I release control and the emotion is clean, it's clean — is that right?
+
+**Feng:**
+Yes. Once it's released, it's released. What you're releasing are the three basic wants: wanting control, wanting approval and wanting to survive.
+
+**Question:**
+Then after I feel joy, do I start the Six Steps over again?
+
+**Feng:**
+After you feel joy, keep releasing, and you'll feel even more joyful and freer. Then release again, and it will soar even higher. The feeling keeps soaring upward. That unbroken joy gives you the momentum to keep releasing. Only this momentum will bring you to Step Four — releasing constantly.
+
+My aim this time is to draw out the whole map. Once a group of people have more or less learned the process, I really do have to go into retreat. This can't be put off any longer.
+
+**Question:**
+How do I start again?
+
+**Feng:**
+Just start the process again.
+
+---
+
+**Feng:**
+Let me talk about being stuck. Many people feel that emotions keep coming up, and they can slowly squeeze a bit out.
+
+They think that's releasing constantly, not being stuck. Wrong — that's being stuck too, because you're bogged down.
+
+Releasing without getting stuck means that, every time you release, you're lighter, happier and freer. Use Step Six to verify your releasing.
+
+If you feel you're fighting a long, drawn-out war with it, you're bogged down. If releasing feels like hard work, you're bogged down.
+
+You must watch out for this. Releasing isn't a war of attrition. I know “releasing constantly” sounds like one, but it really isn't. Every single release brings you enormous joy and freedom, and then you naturally want to keep releasing.
+
+---
+
+**Student:**
+What should I do when I'm stuck?
+
+**Feng:**
+That's when you need to pay attention to Step Five. Look at the stuck feeling and release your wanting control. If you don't release that control, it will keep running you, and you'll stay stuck.
+
+This can't be solved by a war of attrition. “Stay stuck” means for a lifetime, or even more than a lifetime. Until you release it, it will keep you stuck.
+
+---
+
+**Student:**
+I'm doing something or eating, and a feeling comes up in some part of my body. Before I even have time to see which want it is, it suddenly disappears.
+
+**Feng:**
+Does that disappearance come with a feeling of joy and freedom?
+
+**Question:**
+No.
+
+**Feng:**
+Is there a feeling of greater clarity? If not, then it isn't releasing. It's been pushed down by habitual, programmed suppression.

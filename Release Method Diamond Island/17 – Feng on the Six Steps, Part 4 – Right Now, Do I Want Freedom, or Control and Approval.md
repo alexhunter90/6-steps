@@ -1,0 +1,81 @@
+# Feng on the Six Steps, Part 4 | Right Now, Do I Want Freedom, or Control and Approval?
+
+*Original: [《风谈六步骤》连载4丨我现在想要自由还是想要控制和认同？](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD4%E4%B8%A8%E6%88%91%E7%8E%B0%E5%9C%A8%E6%83%B3%E8%A6%81%E8%87%AA%E7%94%B1%E8%BF%98%E6%98%AF%E6%83%B3%E8%A6%81%E6%8E%A7%E5%88%B6%E5%92%8C%E8%AE%A4%E5%90%8C%EF%BC%9F.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+---
+
+Original article · from the series *Feng on the Six Steps* · Release Method Diamond Island · 13 February 2022, 19:59
+
+**Right now, do I want freedom, or control and approval?**
+
+**L:** It suddenly occurred to me that I could try just being aware, and not releasing any more. That way I could cure my bad habit of controlling out of habit and forcing my releasing out of habit.
+
+**Feng:** I don't think you should do that. That's wanting control too. If you don't face that stuckness, you're letting it run you. Use the releasing process to deal with habits. Don't do anything outside the Six Steps.
+
+What happens with “just being aware” is that you keep up a surface calm. That's being stuck too — stuck inside; you're just refusing to look at the stuck feeling. Don't be afraid of the habit of getting stuck. Only by allowing it to surface can you release it.
+
+**L:** Yes, thinking about it, that's right. I've been so worried about being stuck that I can't sleep. I want so badly to change — including wanting so badly to release and break through.
+
+**Feng:** When the stuck feeling comes up, you have a strong tendency to want to change it.
+
+**L:** Yes.
+
+**Feng:** Your thinking right now is driven by that wanting to change. Whenever the head wants to alter the process, that's the reason. Can habits be solved by suppressing? Not facing the stuck feeling is pushing it back down.
+
+**L:** Right — I still need to release by following the process.
+
+**Feng:** Habit is nothing but a feeling driving you; programs are feelings. Go back to Step Three of the Six Steps: all feelings are wanting control and wanting approval — release them.
+
+**L:** OK, I'll go and try releasing again.
+
+**Feng:** The Six Steps are the tool that gets us on the road. Use them in place of the head — use them as our head.
+
+**L:** I've just realised I can't recite the Six Steps from memory.
+
+**Feng:** Keep them in your hand, keep them beside you. There's no need to learn them by heart.
+
+Step One: want freedom more than approval and control. If you can't do this, many feelings can't even come up. If, right now, you want control and approval more than you want freedom, you won't release. Right now you need to decide to release the wanting control that's keeping you stuck — make a decision that goes beyond it. Allow it to come up and leave, and then do it. Allow yourself to become aware of the feeling right now: it's wanting control or wanting approval. Let it go.
+
+**L:** I suddenly became aware of the desire of wanting to control “my always being stuck”. Before, I only knew about it, but I couldn't become aware of it.
+
+**Feng:** You have to make a decision to go beyond it before you can become aware of it.
+
+**L:** So is it really that my will to release being stuck wasn't strong enough — I hadn't made the decision, because I felt it was too hard?
+
+**Feng:** It's because your wanting freedom wasn't greater than your wanting control, so you let it stay inside.
+
+**L:** Yes — just now, seeing “want freedom more than the world”, I suddenly became aware of it. Amazing.
+
+**Feng:** It really is very simple. The answer is in the Six Steps.
+
+**L:** This is the first time I've really used the Six Steps.
+
+**Feng:** You can think of it as “wanting to release it”. If you want control and approval more than freedom, you keep it pressed down inside; you won't let it out. Only if you want freedom will you allow it to surface.
+
+**L:** It feels as though this desire was right there beside me, but before I just couldn't see it. Now it's easy to become aware of.
+
+**Feng:** So make sure you achieve Step One. I didn't stress it before, because I thought it was common sense.
+
+**L:** I hadn't even thought about it. I'd only glanced at Step One; I hadn't even considered whether I could do it.
+
+**Feng:** But Lester said Step One is the most important step, so it should be emphasised.
+
+**L:** I couldn't feel it before, but now I really feel it deeply.
+
+**Feng:** In this situation it's very simple: right now, do you want to release that stuckness or not? If you want to, you'll decide to do it. You'll allow it to come up, instead of letting the wanting control stay inside and run you.
+
+**L:** Yes. I want to release this stuckness. I'll go and try it directly.
+
+**Feng:** None of the Six Steps can be overlooked. If there's one step you can't do, you'll stall. You can't say, “I'll skip step such-and-such for now” — then releasing won't keep going.
+
+**L:** I had this subconscious idea that my releasing isn't deep yet, so I don't need the Six Steps at all. No wonder I've never deliberately used them.
+
+**Feng:** Let me give a very simple example of using Step One. When you want to talk to someone, suppose you have a wanting approval. At that moment you've stopped releasing; a wanting approval is running you. If you remind yourself of Step One — “I want freedom more than approval and control” — you can let that wanting approval come up. Otherwise you'll go ahead and talk, and let that wanting approval stay inside, running you.
+
+**L:** Yes, I'm starting to understand how to use it.
+
+**Feng:** No step is superfluous. So try to get completely clear on the Six Steps, so you can keep releasing constantly. If you have the slightest doubt about the Six Steps, just say it, because I'm very clear on the Six Steps now.
+
+**Y:** Wanting freedom — is that wanting to be rid of all feelings?
+
+**Feng:** Rid of all limitation, all feelings.

@@ -1,0 +1,91 @@
+# Lester's Favourite, Most Practical Teaching: Getting Everything Just by Releasing
+
+*Original: [莱斯特最喜欢最实践性的教导：仅仅通过释放获得一切](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E8%8E%B1%E6%96%AF%E7%89%B9%E6%9C%80%E5%96%9C%E6%AC%A2%E6%9C%80%E5%AE%9E%E8%B7%B5%E6%80%A7%E7%9A%84%E6%95%99%E5%AF%BC%EF%BC%9A%E4%BB%85%E4%BB%85%E9%80%9A%E8%BF%87%E9%87%8A%E6%94%BE%E8%8E%B7%E5%BE%97%E4%B8%80%E5%88%87.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+> **About this document.** These are three excerpts from Lester Levenson's recorded talks in *The Way*, translated into Chinese by Feng. Lester spoke in English, but his original words aren't in this repository, so this is a translation of Feng's Chinese back into English. It aims to be faithful to the meaning, but it is not Lester's exact wording. If you have the *The Way* recordings, Lester's own words take priority.
+
+---
+
+25 September 2021 · The Shortcut to Freedom
+
+Translation into Chinese: Feng · Video: Roller
+
+I want to give you one more very practical thing that can help you go free, and that is: whatever you're doing now, whatever you want, get it just by releasing. I'm underlining the word “just”.
+
+This might blow your mind, because it's so easy — things will fall into your lap. Is there anyone here who hasn't yet experienced getting something effortlessly through releasing?
+
+So everyone here has already experienced getting things just by releasing: no expenditure of energy, no action, just releasing, and then it falls into your experience.
+
+Is there anything wrong with that? *(laughter)* Is there anything wrong with that? As long as you do it this way, everything is possible.
+
+OK, so what I'm proposing now is that, from now on, anything you want, you get it through releasing.
+
+Aren't you going to write that down? I'm afraid that when I stop talking to you, you'll forget it. This means your life is going to become very beautiful from now on.
+
+Right — what does it do? It gets you into the habit of releasing. It gets you using releasing more and more, until it's as natural as breathing.
+
+The biggest surprise isn't that you're going to get the things you want. It's that you'll move into the state of beingness. You'll move into a very, very high state. Because when you let go through releasing, you're letting things run by themselves — letting God do it.
+
+Can God do it? You need money? Does God have money? If you just let Him, He could give you a billion dollars tomorrow.
+
+It's just a permitting. Basically it's letting go of your sense of ego — “I am in my body and mind”. Let go of this sense of ego and let God do it. This is letting the part of you that is God — your beingness — do it. It's very simple, isn't it?
+
+— Excerpt from *The Way* 1: “Following the Six Steps Through Is the Only Key”
+
+---
+
+So what do you need to do? In the previous four days of the course I summed it up. The first is that you want freedom more than you want the world. Following from that, you should get all your happiness from yourself — through releasing, from within. That's lesson 1.
+
+Lesson 2 is: you must make the decision to be free, and then you do it. And if you make the decision to be free, you will do it. It's that simple. If you're not free, then you haven't made the decision to be free. Because once you make the decision, everything you do afterwards will be towards freedom. The most basic thing is releasing constantly.
+
+The third lesson is to face the fear of dying directly and release it. Release the fear of dying directly. As you know, underneath approval and control is the fear of dying. So get rid of this driver at the very bottom, and you're finished.
+
+The fourth is: from now on, get every single thing you want through releasing. I'd guess this is the most practical of the four. How successful have you been? Are you still doing things through the eyes of the little ego most of the time? Remember, when we do things through releasing, it's effortless. If you're putting in effort, that's ego-driven.
+
+— Excerpt from *The Way* 2: “Following the Six Steps Through Is the Only Key”
+
+---
+
+The next one is: from now on, get everything you want just by releasing. I think this is my favourite one.
+
+From a practical point of view, it will give you more than the other pointers. Do you know why? You'll be releasing every moment. Because your wanting is already overloaded — want, want. How successful have you been with this?
+
+From now on, get everything you want just by releasing. Is this working for any of you? Anything you want right now, release on it, and let it come into your experience.
+
+Who has experienced getting everything they want just by releasing? Anyone?
+
+Everything! Everything means everything. Did you want to say something?
+
+**Student:** I want to say a lot. It seems like things just happen…
+
+**Lester:** That's how it should be — things just happen. So I have to add one last one: not being the doer. Because when you do it this way, you're not the doer.
+
+**Student:** *(inaudible)*
+
+**Lester:** You let go, and then you're not the doer. This is releasing the wanting to be an ego. These are very powerful things, very powerful. If you can make any one of them a lasting habit, any one of them will take you all the way.
+
+**Student:** When you say it's your favourite, you mean…
+
+**Lester:** The one I use most.
+
+**Student:** I think my favourite is getting everything I want by releasing.
+
+**Lester:** That's my favourite too.
+
+**Student:** Does that mean it's more positive?
+
+**Lester:** Because you can see that this is the action you need to take to go free. The most direct action towards freedom is releasing all the obstacles. So today we're going to do Releasing 102 — the first time was Releasing 101. If you've been to college, you'll know what I mean. *(laughter)* I don't know what your colleges are like. *(laughter)* In my day, the first course was 101 and the second was 102. So today is Releasing 102, which means everyone has to release 102 times, and I'll count it towards your credits. *(laughter)*
+
+I suggest you make whatever statements will remind you: “Get everything through releasing.” They're all in your room, those signs. This is the most efficient way to go free. Make sure you go free. Now, is this working for all of you? Getting things without effort? Effort steadily decreasing? Have you ever got things effortlessly? With no effort at all — just falling into your lap?
+
+**Student:** Yes, but not consistently.
+
+**Lester:** OK. That's an experience of being your real Self — capital S — of being your beingness. When you are your beingness, it has to be effortless. But take these things on board, because they'll help you and encourage you to do more, until the whole world falls into your lap effortlessly. Wouldn't that be nice? When it becomes your habit, you find you can create anything: just by a thought, it falls into your lap.
+
+— Excerpt from *The Way* 4: “Following the Six Steps Through Is the Only Key”
+
+---
+
+> **Translator's notes**
+> - **“Releasing 101 / 102”** is Lester's joke on American college course numbers, where 101 is the introductory course.
+> - **“Not being the doer”** (不做行为者) means letting go of the sense that you, as an individual ego, are the one who acts.

@@ -1,0 +1,78 @@
+# Feng's Talks on the Six Steps (5) — 20 November 2020
+
+*Original: [风对六步骤的谈话（五）](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E9%A3%8E%E5%AF%B9%E5%85%AD%E6%AD%A5%E9%AA%A4%E7%9A%84%E8%B0%88%E8%AF%9D%EF%BC%88%E4%BA%94%EF%BC%89.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+---
+
+The Shortcut to Freedom · posted 7 March 2021, 15:51
+
+**Date of talk: 20 November 2020**
+
+**Feng:**
+Releasing can achieve anything. Make that your own experience.
+
+During my releasing retreat I also achieved a lot of goals. But I didn't use the goal sheets; I just listed the things I wanted to achieve.
+
+Then I kept on releasing, and afterwards found that most of them had come about.
+
+---
+
+**Question:**
+During the retreat, had you already stepped into Step One?
+
+**Feng:**
+It was on the later occasion that I verified the Six Steps. That time, when I verified the Six Steps, I knew that something had transformed completely.
+
+Later I suddenly realised that this was what the Āgama sutras call stream-entry. And after that, reading the Venerable One's explanation, I learned that it is also *nirvikalpa samadhi* in yoga.
+
+Verifying is achieving Step One. Only when you achieve Step One can you cut off doubt, and only once doubt is cut off can it be called “verifying”.
+
+The whole path appears before you. You know directly how to go on from here to the end — a direct knowing that doesn't come through thinking.
+
+Then you find that none of your actions can go in the direction opposite to freedom any more. This feeling of the flow changing direction is extremely clear.
+
+---
+
+**Question:**
+How did you suddenly verify the Six Steps?
+
+**Feng:**
+Constant releasing.
+
+**Question:**
+How long did you release constantly?
+
+**Feng:**
+I released for less than a week.
+
+**Question:**
+In retreat, releasing for a whole week?
+
+**Feng:**
+Yes. My constant releasing wasn't sitting there blankly, forcing myself to release. I had written lots of goals down. My mental activity was testing. This is what it was like for me:
+
+I'd do a release and feel very good. Then I'd say to myself, “If I release once more, will I feel even better?” Testing Step Six.
+
+Then I'd get stuck, and I'd say, “Let's test Step Five. Release the wanting control and see whether it really gets better.” I'd look — ha, sure enough, it was flowing again. So happy.
+
+Then release once more. So the whole process was actually quite fun. It wasn't the grim, ascetic sitting that many people imagine.
+
+After releasing constantly for a few days, I already felt very happy, and at that point insights arose naturally.
+
+I just knew directly what the only source of happiness is. And when you cover it up with feelings, that is suffering. Suffering is limiting your infinite being.
+
+The moment this realisation happened, I immediately felt that something had changed. Releasing became very active — it no longer needed any enticement from those goals on paper.
+
+I just kept releasing and releasing, and then I reached the point I've talked about: I suddenly pulled free of the whole mind. It felt as though all the force my mind was using turned inward. In that single instant it felt as though my whole body and mind had turned around, and then I suddenly knew all the steps that came after.
+
+At the time I thought those experiences were personal to me, so I didn't describe many of them in detail. For example, when the pressure in my body lifted, I suddenly relaxed completely and sat bolt upright.
+
+Now I know this is bound to happen, because it is a precondition for entering samadhi, and also one of the earlier limbs leading to *nirvikalpa samadhi*.
+
+---
+
+> **Translator's notes**
+> - **Stream-entry** (预流, Pali *sotāpatti*) is the first of the four stages of awakening in early Buddhism, described in the Āgama sutras (the Chinese counterpart of the Pali Nikāyas).
+> - ***Nirvikalpa samadhi*** (涅比卡帕三摩地) is a yogic term for absorption without any mental modification or distinction.
+> - **“The Venerable One”** (尊者) is a respectful title for a spiritual teacher. The text doesn't say who is meant.
+> - **“Earlier limbs”** (前面几支) refers to the stages (limbs) of the yogic path that come before samadhi. Sitting upright and relaxed corresponds to posture (*asana*).

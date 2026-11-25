@@ -1,0 +1,88 @@
+# [On Freedom] Why Do I Play This Game of “Being a Limited Body”?
+
+*Original: [【关于自由】为什么我要玩这场成为有限身体的游戏？](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%90%E5%85%B3%E4%BA%8E%E8%87%AA%E7%94%B1%E3%80%91%E4%B8%BA%E4%BB%80%E4%B9%88%E6%88%91%E8%A6%81%E7%8E%A9%E8%BF%99%E5%9C%BA%E6%88%90%E4%B8%BA%E6%9C%89%E9%99%90%E8%BA%AB%E4%BD%93%E7%9A%84%E6%B8%B8%E6%88%8F%EF%BC%9F.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words said in English in the original are kept as they were said and shown in italics.*
+
+---
+
+Original article · from the series *Feng on the Six Steps* · Release Method Diamond Island · 31 December 2021, 12:43
+
+**Shared on 17 November 2020**
+
+**Trickling Stream:** Feng, is this world just one possibility that infinite being is exploring?
+
+**Feng:** Infinite being doesn't need to explore. Lester talks about this in detail in the videos. At first you are passively infinite being; after going through the illusion of separation, you actively return to the infinite.
+
+**Tiancheng:** I was just about to ask: why do we fall from infinite being?
+
+**Feng:** To illustrate with a comparison: it's like your illness and health. If you've never been ill, health has no meaning for you. When you've been ill and return to health, it becomes precious. You actively choose to be infinite being.
+
+At the start, infinite being created a mind, and then created three bodies. The physical body is the most limiting. So here, the drive towards freedom is greatest.
+
+**Trickling Stream:** That's the curve Lester talked about — we're at the very bottom now.
+
+**Feng:** Yes — *roller coaster*.
+
+**Trickling Stream:** So, using the Release Method, you can go straight to the top from any point. And without the Release Method, you can also reach the top through long evolution?
+
+**Feng:** People without the Release Method need hundreds of millions of years. The cycles of natural evolution are very slow, and they come with rises and falls.
+
+**Tiancheng:** Hundreds of millions of years? That's far too long!
+
+**Feng:** The cycle by which the structure of your brain shifts will bring you, in a million years, to the point of manifesting cosmic consciousness. But a million years of natural evolution won't bring you complete freedom. Those who still aren't free when Brahma's dream ends will be thrown back into the dream again.
+
+**Tiancheng:** How long is one Brahma?
+
+*(Feng quotes a passage from a book about practising with Yogananda.)*
+
+> How long has each soul wandered in delusion? I haven't kept statistics on this, but in fact it may be longer than one day of Brahma! How much longer? I really don't want to think about it! In the *Bhagavad Gita*, Krishna says, “At the start of the first day of a new Brahma, I cast all these souls into delusion again.” In the *Rubaiyat* (a true scripture, not merely the love poetry it's commonly thought to be), Yogananda explained one quatrain of special significance as meaning: “Many who entered creation at the beginning of Brahma's day are still wandering in delusion at its end.”
+
+> **Translator's note:** This passage is translated from the Chinese edition of a book about Yogananda (Chinese title roughly *Transcendence: Practising with the Yoga Master Yogananda*). It is not the original English.
+
+**Feng:** One dream of Brahma lasts hundreds of trillions of years. In the scriptures these are symbolic numbers. The billions of years of one daytime are a symbolic number.
+
+**Tiancheng:** Hundreds of trillions of years — so I've been reincarnating for hundreds of trillions of years?
+
+**Feng:** Time is only an imagining of consciousness. It's like a dream: in a dream you can live from birth to old age and death, but when you wake up, only one night has passed. So time has no meaning; it's only a supposition of the mind.
+
+**Trickling Stream:** Once you reach nirvana, do all dreams end completely, and you never enter a dream again?
+
+**Feng:** Once free, free forever.
+
+---
+
+**(Inserted here: some passages from Chapter 31, “The Game”, of *The Way to Ultimate Freedom*)**
+
+> **Translator's note:** The following passages of Lester's are translated from the Chinese edition of his book. His original English isn't in the repository.
+
+**Lester:** We are all, essentially, infinite and perfect beings. I assume most people can accept this, at least in theory. We've read it in many scriptures, especially the Indian texts. The masters all say it, and I'm saying the same thing. But why can't we express the infinite, perfect being that we already are? Because of the momentum of many lifetimes, we've been playing the game of limitation.
+
+We've played it for so long that we've completely forgotten we're playing a game of limitation, and that our essence is infinite. We don't look at the infinite being that we already fully are. Every day, every second, we look at our self-made puppet — the body — and assume that we are this body. We take the body to be ourselves, and so we get stuck there and can't see our infinity, and so we can't know that we are infinite. Lifetime after lifetime, we keep assuming we're only a body.
+
+We've done this for so long that it takes a strong will to go in the opposite direction and see clearly the infinite being we already are. This strong will takes us away from the assumption that we are a body. If we can see the infinite being we already are, even for one second, we can use that second to let go of a great deal of limitation. But first we must assume that we are infinite, and then start removing the limitations. We must accept the fact that we are not this body and this head; otherwise we can never get out of the trap called “the game of being a limited body”.
+
+**Question:** How did God become man? Isn't it a bit blasphemous for man to become God again?
+
+**Lester:** No. Anyone who tells you that does so because they don't want you to reach the highest state. But that's how it is. It's like sleeping at night: you dream that you're born into the world in a baby's body, then you're a week old, a year old, then twenty, forty, and you dream you have many, many, many problems. Remember, it's only a night dream. This goes on and on, and you feel exhausted, so you dream that the body dies — and then you wake up. In the night dream, did you yourself ever change? You never changed! You say it was never real; it was just made up by my head, wasn't it?
+
+That's what it's like for us in the waking state. This waking state is really a sleeping state. With regard to the truth of our infinite being, we are completely asleep. We only dream that we are awake, when actually this is a state of sleep that we need to wake up from. When we really wake up, we'll say, “Oh my God, it was never real! I was never a limited body! I have always been infinite being!”
+
+So we've created a dream in our heads, and this dream is called “the waking state of the world”. Yet it is only a dream. But in order to realise it's only a dream, you have to wake up from that state. Can you follow that? So the answer to “how did we do all this?” is: “We're dreaming!”
+
+**Question:** On purpose?
+
+**Lester:** Yes, on purpose. You see, we started out from infinite being in a passive way. We came down to the lowest point, which is where we are now, and then we go back to the highest point and see our infinity again. But through going round this cycle, we have an active awareness of our infinity, whereas before it was a passive awareness.
+
+It's like perfect health. It means nothing to someone who was born perfectly healthy and stays that way all their life, because they have no active awareness of perfect health. That state is fine, of course, but because their health is passive, they can't be grateful for it. But once they fall ill and hover on the edge of death for years, and then have to rebuild perfect health, perfect health means far more to them than it did before they were ill. That's the foolish thing we've done to ourselves. We come from the infinite, come down to where we are now, and then return to the infinite with an active awareness of it. On the way down, we can't see what we're doing. Only by going within can we discover it.
+
+**Question:** That's the first time I've heard such a reasonable explanation of the mess we're in — the first time I've heard why we get pulled down.
+
+**Lester:** Good. Now go back up.
+
+---
+
+> **Translator's notes**
+> - **Trickling Stream** (涓涓细流) and **Tiancheng** are group members' chat names.
+> - **“Brahma's dream” / “a day of Brahma”** comes from Hindu cosmology, in which a cycle of creation lasts one “day” of the creator-god Brahma, billions of years long.
+> - ***Rubaiyat*** is the *Rubaiyat of Omar Khayyam*. Yogananda wrote a spiritual commentary on it.

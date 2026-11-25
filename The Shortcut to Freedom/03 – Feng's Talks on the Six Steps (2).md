@@ -1,0 +1,71 @@
+# Feng's Talks on the Six Steps (2) — 2 December 2020
+
+*Original: [风对六步骤的谈话（二）](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E9%A3%8E%E5%AF%B9%E5%85%AD%E6%AD%A5%E9%AA%A4%E7%9A%84%E8%B0%88%E8%AF%9D%EF%BC%88%E4%BA%8C%EF%BC%89.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+---
+
+The Shortcut to Freedom · posted 4 March 2021, 08:01
+
+**Date of talk: 2 December 2020**
+
+**Student:**
+Teacher Feng, with the Six Steps, do you have to achieve Step One first? I don't know how to achieve it. Can the order of the Six Steps be switched around?
+
+**Feng:**
+The Six Steps are achieved through constant releasing. You have to keep getting joy from Step Six; that is what brings you to Step One.
+
+At the beginning, all of the Six Steps are useful. When you don't want to release, remind yourself of Step One. Then decide to release — that's Step Two.
+
+Release wanting control and wanting approval directly — that's Step Three. Release constantly, keep it constant — that's Step Four.
+
+When you're stuck, release the wanting to control the stuckness — that's Step Five. Every release feels happier and lighter — that's Step Six.
+
+Follow the Six Steps all the way through and keep doing them, and the momentum towards freedom gradually builds, until Step One is fully achieved.
+
+---
+
+**Student:**
+I feel that as long as I'm releasing, the Six Steps just happen naturally, like breathing — no reminder is needed. Have I understood that correctly?
+
+**Feng:**
+You do need reminders, because the Six Steps are very easily forgotten. As soon as you're not in the Six Steps, you're not releasing constantly. And whenever you really are releasing constantly, you will definitely be in line with the Six Steps.
+
+---
+
+**Student:**
+Releasing all the time isn't necessarily releasing constantly, is it? And when I'm stuck, using Step Five is still releasing constantly, right?
+
+**Feng:**
+Using Step Five when you're stuck is still releasing constantly. But if you get stuck and just stay stuck, that isn't releasing constantly.
+
+---
+
+**Student:**
+When I don't want to release and I remind myself of Step One, I don't feel much. What gives me more motivation is reminding myself that I want to change myself and want everything to get better.
+
+**Feng:**
+That works too. Releasing makes you freer, and freedom includes everything. All you need is something that gives you the motivation to release.
+
+Wanting approval develops into wanting control. When you feel wanting approval, release wanting approval. When you've released wanting control, wanting approval becomes obvious. When you've released enough wanting approval and wanting control, wanting security becomes obvious.
+
+If you don't release wanting security, wanting approval and control get developed all over again, endlessly. So the only way is to keep releasing wanting control and approval, and then keep releasing wanting security. That's the only way to reach the end.
+
+Follow the Six Steps all the way through, and anyone can be free.
+
+---
+
+**Student:**
+If I keep releasing constantly, I'm always in the Six Steps, and I'll reach freedom?
+
+**Feng:**
+Yes.
+
+**Student:**
+Can I also understand it this way: as long as I'm in the Six Steps, I'm releasing constantly?
+
+**Feng:**
+Yes — use the Six Steps to check yourself. As long as you're in the Six Steps, you can be free.
+
+---
+
+> **Translator's note:** “Wanting security” (想要安全) is the Sedona Method's third basic want, alongside wanting approval and wanting control. In Feng's talks it is also called “wanting to survive” (想要生存).

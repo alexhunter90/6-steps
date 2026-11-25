@@ -1,0 +1,101 @@
+# Appendix 6: The Moment You Think You've Realised Something, You Go Astray
+
+*Original: [附录六：一有所悟，便走歪路](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E5%85%AD%EF%BC%9A%E4%B8%80%E6%9C%89%E6%89%80%E6%82%9F%EF%BC%8C%E4%BE%BF%E8%B5%B0%E6%AD%AA%E8%B7%AF.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words that Feng said in English in the original are kept as he said them and shown in italics.*
+
+> **Translator's note:** Lester's words here are translated from the Chinese; his original English isn't in the repository.
+
+---
+
+**3 January 2021**
+
+**Yitian:** “The want is on the very surface” — that's my great discovery this morning.
+
+**I Am Infinite:** That's a breakthrough. With this breakthrough you can become more and more aware of wants, and then you can try releasing them.
+
+**Feng:** The breakthrough duo! *(laughs)*
+
+**Yitian:** I finally have a little breakthrough, and you two make fun of me.
+
+**Feng:** You don't need a breakthrough. Just use it. You see, every time you have a breakthrough you have to sum it up with the mind, don't you? And what you sum up is conceptual stuff, isn't it? You just turn a concept into words and expect to get the experience?
+
+**Yitian:** With any luck I'll break through this afternoon.
+
+**Feng:** You can break through in the next second — don't put it off.
+
+A breakthrough isn't the head understanding something. Being able to experience releasing is a breakthrough; being able to experience releasing constantly is a bigger breakthrough still. Whatever the head understands is a false breakthrough. There's a trap here; let me explain.
+
+Often, when people use a method and don't get the results they expected, they start looking for a solution. Like when you can't drive well and wonder whether there's some other knack. In practice, they ask this person and that, and grab anyone who releases well to ask them. They hear a view, try it, feel it helps, and then — “Aha!”. This direction is wrong.
+
+Because, for example, say you're too tense right now and someone tells you to relax. You relax, find you can release, and so define relaxing as the knack.
+
+Then you get stuck again. Someone tells you to allow; you allow, find it works, and define allowing as the knack.
+
+The more “knacks” you accumulate in your mind, the harder releasing gets, because you're paying attention to all of them all the time.
+
+The real knack is to keep it simple — go back to the simplest releasing process.
+
+Asking people who release well is no use, because they can't sum up why they release successfully. Many people can release, but the lessons they draw are the head's imagination, and they're wrong. It's like asking Jack Ma why he can make money — actually he doesn't really know himself.
+
+It's very simple: if releasing had those knacks and principles, why wouldn't Lester tell you about them?
+
+The experience of the Release Method is that the more you release, the fewer things you need to pay attention to, and the simpler it gets.
+
+It's like riding a bike. Once you've learned, you just get on and ride; you don't think about how to ride. You don't think about whether to swing your left leg over first or your right. That comes through lots of releasing, not through intellectual understanding.
+
+*(Feng then quoted something Lester said in* The Way *part 3.)*
+
+> **Lester:** When I try to explain an experience to you, it's like trying to tell you how to fly a plane, or even drive a car. I say: just put the key in, put it in drive, step on the accelerator, and off you go.
+>
+> When you want to go right you turn the wheel to the right; to go left, you turn it to the left. Could you learn to drive? You know everything you need to know about driving — can you drive? No, you need the experience.
+>
+> All the more so with flying a plane. I tell you how to fly a plane; you go up and come down fast. Experience is putting you on the bicycle. I can tell your head how to ride a bicycle, but you won't know how to do it until you experience it.
+>
+> When you experience it, you can't transfer an experience intellectually to another person; they have to experience it for themselves. So that's the clear difference between experience and intellectual understanding.
+>
+> Intellectual understanding won't give you the ability to experience. It can lead you towards experience, but it won't give you an experience, because experience isn't in the head. Thinking isn't experience.
+
+**Feng:** Like learning to ride a bike: just do it, fall off a few times, and you've learned.
+
+> **Lester:** But you can see that what our method actually does is release the drives of the mind. Don't try to develop your mind. If you do, you're developing your enemy — developing the very thing that binds you.
+
+**Feng:** When your “intellectual understanding” of the Release Method keeps growing, you know you're on the wrong road. The better you release, the less intellectual understanding there is.
+
+You know that's a feeling, you know you can release it, you know what releasing is, you know the mind is quiet after releasing — you have all those experiences.
+
+> **Lester:** Yes, you release your craving and aversion towards the world, one little bite at a time. But you need to take a big bite, not these little bites.
+>
+> So use what you're doing to release. Understand that the only effort you need is the effort to get rid of your effort. That's what you do in the world: you use your effort to get rid of your effort. But in your beingness no effort is needed; things materialise and dematerialise immediately.
+>
+> Yet you try to figure it out with the head. You can't, because your head, your intellect, is the obstacle — an accumulation of limiting concepts. So you can't figure it out in your head. You can be your beingness; you are your beingness right now.
+>
+> You don't have to be a limited car frame, and that's what you release at work and in daily life. You release all the craving and aversion and get rid of all the emotions associated with it. Have I answered your question?
+>
+> **Student:** Yes. I think I wasn't trying to figure it out, but I can say I can skip a part. You've answered my question.
+>
+> **Lester:** You can't figure it out.
+
+**Feng:** Note: *you can't figure it out*. Right effort is still needed; actually doing it simply is still very important. Let me tell you about a habit I had too. Before, whenever I experienced releasing, I would unconsciously sum it up. Whatever you do, don't sum it up. One summary by the mind can send you off course for a long time.
+
+If you're releasing well, keep releasing. As soon as you “realise” something, you go astray.
+
+Someone once said to me: “The moment you think you've realised something, you go astray.” That saying helped my releasing a great deal later on.
+
+Record your gains, not the mind's understanding of the method, because those understandings really are all limiting. The method page only needs the Six Steps on it.
+
+After I'd released constantly and reached samadhi, I looked back at my weird old understandings and felt very stupid.
+
+I found very early on that discussion didn't help me. Discussion is everyone talking about their own problems and then mutually approving of each other's limiting ideas, so most discussion is useless.
+
+Discussion between practitioners is everyone posting their own mental understandings and misleading each other.
+
+Just send people the method. Just send them the master's teaching directly.
+
+I used to be in a Theravada group that was quite good — a Vipassana group. Normally everyone was quiet; now and then someone would post a passage of scripture, without adding their own commentary.
+
+Later more people joined and started discussing experiences, and the group became useless. Experience processed by the mind can't help anyone; it only misleads.
+
+---
+
+> **Translator's note:** **Yitian and I Am Infinite** are group members. **Jack Ma** is the founder of Alibaba.

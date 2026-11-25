@@ -1,0 +1,75 @@
+# Feng on the Six Steps, Part 6 | How to Do Step One — Wanting Freedom More Than the World (2)
+
+*Original: [《风谈六步骤》连载6丨如何做到第一步想要自由超过想要世界？（二）](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD6%E4%B8%A8%E5%A6%82%E4%BD%95%E5%81%9A%E5%88%B0%E7%AC%AC%E4%B8%80%E6%AD%A5%E6%83%B3%E8%A6%81%E8%87%AA%E7%94%B1%E8%B6%85%E8%BF%87%E6%83%B3%E8%A6%81%E4%B8%96%E7%95%8C%EF%BC%9F%EF%BC%88%E4%BA%8C%EF%BC%89.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+> **Translator's note:** Lester's words here are translated from the Chinese; his original English isn't in the repository.
+
+---
+
+Original article · from the series *Feng on the Six Steps* · Release Method Diamond Island · 14 February 2022, 22:26 · Filed under topic: #FengOnTheSixSteps serial (13 articles)
+
+❀ Hi ~ Welcome to the island ❀ — When you go within, you'll find that all happiness is there —
+
+### Sharing 3: We keep trying to find happiness in the outer world. Get into the habit of “getting everything just by releasing”: get every single thing you want through following the Six Steps and releasing constantly, until you truly experience that happiness comes from the infinite within. Then you'll spontaneously stop looking for happiness in the outer world, and you'll naturally “want freedom more than the world”
+
+**Shared on 9 December 2020**
+
+**Feng:** Lester also explained in detail that there are two drives to growth. One is pain — like someone behind you whipping your body. The other is happiness.
+
+What is the only source of happiness? The mind becoming quiet, so that a little more of your infinite being shows through. Does the happiness you get from food come from the food? No — it's that while you're chewing, the mind quietens down for a while. Does the happiness you get from sex come from sex? No again. Sex makes people happy because, for an instant, it can make the mind very quiet.
+
+Step One of the Six Steps is actually very simple. Achieving it fully isn't easy, but the way to start is very simple. Let me post Lester's summary from *The Way* 2:
+
+> **Lester:** So what do you need to do? In the previous four days of the course I summed it up.
+>
+> The first lesson is that you must want freedom more than you want the world. Following from that, you should get all your happiness from within yourself — get it just through releasing. That's lesson one.
+>
+> Lesson two is: you must make the decision to be free, and then you do it (release). Actually, if you decide to be free, you will do it. It's that simple. If you're not free, then you haven't made the decision to be free. Because once you make the decision, everything you do afterwards will be towards freedom. The most basic thing is releasing constantly.
+>
+> The third lesson is to face the fear of dying directly and release it. Release the fear of dying directly. As you know, underneath approval and control is the fear of dying. So get rid of this driver at the very bottom, and you're finished.
+>
+> The fourth is: from now on, get every single thing you want through releasing. I'd guess this is the most practical of the four.
+>
+> How successful are you now? Are you still doing things through the eyes of the little ego most of the time? Remember, when we do things through releasing, it's effortless. If you're putting in effort, that's driven by the ego.
+
+**Feng:** Lester's favourite was the fourth: get every single thing you want through releasing. Why? It's very simple. A free being is completely without desire. If you still have things you want, you aren't free.
+
+Can suppressing your wants make you completely free of desire? No. It only makes your desires drive you at the subconscious level, which makes you disgusted with the world, and that leads to desire expressing itself even more strongly. So the only thing to do is release them: write down everything you want, and bring all of it about through releasing. Suppressing desire is not being free of desire.
+
+**Z:** Feng, while releasing on a goal, I found I got to a stage where I no longer wanted the goal itself. I became aware that I really just wanted security, and released it. It seems I no longer care whether the goal comes about. At this point, do I still need to pay attention to whether it actually comes about? Do I have to release until it happens? (I don't need this goal any more — do I still need to release on it?)
+
+**Feng:** That's why you need to release your wanting to control it a few more times. Release until you're completely sure it has come about. The biggest purpose of releasing on goals isn't the goal itself; it's to make you understand that you are the master of matter. You have to prove to yourself that you have that ability. If you really don't want this goal any more, swap it for one you really do want — but you have to bring it about. You can't keep putting it off; you can't let failure become normal.
+
+You can release on whatever you most want right now and get it, and then you'll find it doesn't bring you happiness. You keep going and release on a new goal. You'll find there's no happiness in that either. In the end you'll be left with only one direction, and that is freedom. Why do it this way? Because right now you only know the source of happiness in theory, not from real experience. Until you truly experience it, however much you shout freedom slogans, your actions will go the opposite way.
+
+It's normal to feel more obstruction the more you release. The deeper you go, the more stubborn programs you'll run into. When that happens, just remember the Six Steps and treat every release as your first release. Every feeling is only a feeling. Yes — go and experience it, using that favourite teaching of Lester's.
+
+**Z:** That's inspired me. Let go of all the head's wanting to figure things out (wanting control).
+
+**Feng:** Shouting “I want freedom!” now is no use. Because if you see an attractive member of the opposite sex, delicious food, a nice house or car, or even an amusing video, you'll still be drawn away. Want to know why you're drawn away? Because at the level of experience, you think there's happiness in it.
+
+Repeating the theory ten thousand times in your conscious mind won't really turn you around. But if you really discover that all happiness has one source (the mind becoming quiet and a little of your infinite being showing through), then you'll turn around.
+
+So Lester thought the most practical way is to get everything you want through releasing. Why? Because you live in wanting. You want this, you want that, you can't stop — and that will keep you releasing, until you've released all your wants. Through releasing, and only through releasing.
+
+*(Feng then quotes a passage from Chapter 2, “Problems and Their Solutions”, of* The Way to Ultimate Freedom*.)*
+
+> **Question:** She has to go out and find a job, go to an agency — she can't just sit there waiting!
+>
+> **Lester:** I'd say what she really needs to do is let go and be her real Self. Then, even if she were locked in her room, what she wants would come automatically. Don't wait, don't do anything else — just release the feeling of wanting to do. You already know everything is perfect, so even the faintest thought will come true. “God” is infinite — truly. If you release, whatever you think will come true, because you've activated your own infinite power — your real Self. Nothing can stop it!
+>
+> **Question:** But at the same time you have to take action.
+>
+> **Lester:** No, I'm saying exactly the opposite. I'm saying: lock yourself in your room and hang a padlock on the outside. If you do what I say, you'll find it works — and it has to. Nothing can stop it, because the all-power has been set in motion!
+
+**Feng:** Lester's meaning is radical. He means that just by releasing — even shut away, locked in your room — it will come about. So note this: it has nothing to do with action. You don't need to think about how to take specific action at all. When you find you're thinking about action, notice that your feeling is still “I don't have it”, and keep releasing. Just do it. Don't put it off.
+
+**Z:** “I don't believe things just fall from the sky” keeps stubbornly coming up — I even doubt the Release Method. Should I release the wanting to control this doubt? It's a big sticking point for me; I can't get past it.
+
+**Feng:** It's just a feeling, isn't it?
+
+**Z:** Yes — doubt, fear. Thank you! It's all feelings.
+
+---
+
+> **Translator's note:** “Things falling from the sky” translates 掉馅饼 (literally “pies falling from the sky”), a Chinese idiom for getting something for nothing.

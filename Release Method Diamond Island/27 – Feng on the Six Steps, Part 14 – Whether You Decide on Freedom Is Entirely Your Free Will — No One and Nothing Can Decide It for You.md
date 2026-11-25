@@ -1,0 +1,89 @@
+# Feng on the Six Steps, Part 14 | Whether You Decide on Freedom Is Entirely Your Free Will — No One and Nothing Can Decide It for You
+
+*Original: [《风谈六步骤》连载14丨是否决定自由…](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD14%E4%B8%A8%E6%98%AF%E5%90%A6%E5%86%B3%E5%AE%9A%E8%87%AA%E7%94%B1%EF%BC%8C%E6%98%AF%E5%AE%8C%E5%85%A8%E7%9A%84%E8%87%AA%E7%94%B1%E6%84%8F%E5%BF%97%EF%BC%8C%E4%BB%BB%E4%BD%95%E4%BA%BA%E4%BA%8B%E7%89%A9%E9%83%BD%E4%B8%8D%E8%83%BD%E6%9B%BF%E4%BB%A3%E4%BD%A0%E5%86%B3%E5%AE%9A%E8%87%AA%E7%94%B1.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words that Feng said in English in the original are kept as he said them and shown in italics.*
+
+> **Translator's note:** Much of this matches [Conversations with the Master | From 1970 to 2090…](../The%20Shortcut%20to%20Freedom/17%20%E2%80%93%20Conversations%20with%20the%20Master%20%E2%80%93%20From%201970%20to%202090%2C%20Only%20the%20Release%20Method%20Can%20Take%20You%20to%20Freedom.md) and [Conversations with the Master | Awakening Is Entirely Free Will…](../The%20Shortcut%20to%20Freedom/15%20%E2%80%93%20Conversations%20with%20the%20Master%20%E2%80%93%20Awakening%20Is%20Entirely%20Free%20Will%3B%20Once%20Free%2C%20Free%20Forever.md). For two of the Lester passages, the repository has his original English (in those two documents), so it is used here in place of a translation of the Chinese. These passages are marked. The other Lester passage is translated from the Chinese.
+
+---
+
+Original article · from the series *Feng on the Six Steps* · Release Method Diamond Island · 9 March 2022, 16:11 · Filed under topic: #FengOnTheSixSteps serial (13 articles)
+
+**15 March 2021**
+
+**Tiancheng:** Jesus and the Buddha are all-powerful, and they want to help us go free too. So why don't you just do it for us?
+
+**Feng:** I've answered this question many times. Of course they could, but they don't choose to.
+
+**Tiancheng:** Why not?
+
+**Feng:** They don't force help on anyone. When you choose freedom, you're free, quite naturally.
+
+**Tiancheng:** So the only reason we aren't free is a very simple one — we don't want freedom at all???
+
+**Feng:** Yes.
+
+**Tiancheng:** And that's why the masters won't force us.
+
+**Feng:** Lester said many times that as long as you want freedom, nothing can stop you. Achieve Step One, and you automatically fall into the other five. Reaching freedom can be simply *will it* — and then you're free. Not wanting freedom is the only reason you can't be free.
+
+**Tiancheng:** If I really wanted freedom but didn't have the Release Method or any other method, could I still reach freedom?
+
+**Feng:** If you really want freedom, you are already free.
+
+**Tiancheng:** So you could go from an ordinary person to a saint in an instant? Is that possible? Has anyone in history done that?
+
+*(Note: Feng answered Tiancheng's question above with a passage of Lester's from* The Way *3. Translated from the Chinese.)*
+
+> **Student:** I have a question, because this is what I went to do last night… I got to a crucial point, and it confused me a bit. (Do I have to) give up even my will?
+>
+> **Lester:** Yes — if you can not be the “doer”.
+>
+> **Student:** But at that point…
+>
+> **Lester:** The key here is whether you can be a non-doer. If you can't manage not to be the “doer”, then will is useful. Will is effort — effort to undo effort. But there is a power in it, the power of will, and you can use it to reduce will. Now, it's good that you have will. Because if you really make up your mind, you can release everything in one go. I haven't yet seen the first person who has done it that way. OK, so what's your question now?
+>
+> **Student:** You've just answered it, thank you.
+
+**Tiancheng:** When a person really wants freedom, can a master use his all-powerfulness to help him gain freedom?
+
+**Feng:** Yes — that's very simple. But if you really want freedom, you don't actually need to ask anyone to help you. You'll achieve Step One directly and enter *nirvikalpa samadhi* directly. Those who want freedom are already free; everyone left is someone who doesn't want freedom. It's really very simple. Telling whether a person wants freedom is very simple.
+
+**Tiancheng:** So there's no need to push other people to learn it?
+
+**Feng:** Mm. No need at all.
+
+**Tiancheng:** Because when they really want freedom, they can do it at any time? And the masters will help them, whatever world they're in?
+
+**Feng:** Yes. The mind always thinks what it's doing is important — that's very amusing. The mind thinks it is saving the world. But in fact everyone is infinite being. No one needs to be saved, and no one can be destroyed.
+
+**Tiancheng:** “Telling whether a person wants freedom is very simple” — Teacher, what is the test you mean?
+
+**Feng:** Suppose someone says they want freedom, yet they aren't free — then you know it isn't true. That's the test I mean.
+
+**Tiancheng:** Oh — you mean me. That's why you told me shouting slogans is no use.
+
+**Feng:** People who want freedom are already free.
+
+*(Note: Feng forwarded a passage of Lester's from Chapter 17, “Taking Full Responsibility”, of* The Way to Ultimate Freedom*.)*
+
+> **Lester's own English** (from [Conversations with the Master | From 1970 to 2090…](../The%20Shortcut%20to%20Freedom/17%20%E2%80%93%20Conversations%20with%20the%20Master%20%E2%80%93%20From%201970%20to%202090%2C%20Only%20the%20Release%20Method%20Can%20Take%20You%20to%20Freedom.md)):
+>
+> **Q:** Overriding the unconscious habits is hard to do because they keep sneaking up on you and you don't realize sometimes you've got them.
+>
+> **Lester:** It depends on how strong your desire is for the thing that you want as to whether the unconscious habits override it. We have infinite power, infinite will, and when man so wills he's immediately set free.
+>
+> **Q:** Gee, that sounds so easy.
+>
+> **Lester:** That's the easiest way to do it. Just will it! And it's possible for everyone of us, because we are infinite and therefore have infinite will power. And the reason why we don't do it is that we don't have that much desire for it. We still have more desire to be limited bodies.
+
+**Tiancheng:** Teacher, almost no one on this planet can use the ultimate method, “What am I?”. Is that because almost no one really wants freedom? Or is there another reason?
+
+**Feng:** That's exactly the reason: the will isn't strong enough. That's why a gradual, scientific method is needed — one where you can confirm your gains bit by bit (through releasing), confirm the source of your happiness, and so turn yourself around. But with the enquiry “What am I?”, if you become interested in anything else before you've got the answer, you have to start all over again, and everything before was wasted effort. Some people just fix their gaze on the question and turn it into a meditation practice. The Release Method encourages you to get everything you want, and it also gives you simple, easy, concrete ways to do it. It will get you to the end fastest. Other methods conflict to some degree with the direction of worldly life and give guidance about behaviour, so they'll take you several lifetimes to learn. If you want to reach freedom in this lifetime, use the Release Method. If you don't mind reaching freedom over the next few lifetimes, you can use other right methods. They help too; they're just slow.
+
+> **Lester's own English** (from [Conversations with the Master | Awakening Is Entirely Free Will…](../The%20Shortcut%20to%20Freedom/15%20%E2%80%93%20Conversations%20with%20the%20Master%20%E2%80%93%20Awakening%20Is%20Entirely%20Free%20Will%3B%20Once%20Free%2C%20Free%20Forever.md); the Chinese here gives only this part of the passage):
+>
+> **Lester:** You're going to do exactly what you preset for that body before you came into it. There is no free will in worldly living. However, there is a free will. The free will we have is to identify with the real Being that we are, or to identify with the body. If you identify with the body, you're in trouble. So the free will is one of identity. Knowing this, it makes life much easier; you don't fight it. You aim for proper identity.
+
+**Feng:** There's only one thing you have free will about, and that's choosing to identify with your body or with infinite being. About anything else at all, there's no free will. Every thought you have is pushed along by past programs. What you want and what you're averse to depend on the tendencies of your programs. There's only one thing that is entirely free will: at any moment, you can identify with your infinite being. Releasing is the way.

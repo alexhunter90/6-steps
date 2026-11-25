@@ -1,0 +1,165 @@
+# Appendix 9: Once You Have Risen, Don't Forget to Help Others — It Furthers Your Own Releasing
+
+*Original: [附录九 在自己提升之后，勿忘帮助他人，以促进自己进一步地释放](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%99%84%E5%BD%95%E4%B9%9D%20%E5%9C%A8%E8%87%AA%E5%B7%B1%E6%8F%90%E5%8D%87%E4%B9%8B%E5%90%8E%EF%BC%8C%E5%8B%BF%E5%BF%98%E5%B8%AE%E5%8A%A9%E4%BB%96%E4%BA%BA%EF%BC%8C%E4%BB%A5%E4%BF%83%E8%BF%9B%E8%87%AA%E5%B7%B1%E8%BF%9B%E4%B8%80%E6%AD%A5%E5%9C%B0%E9%87%8A%E6%94%BE.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words said in English in the original are kept as they were said and shown in italics. Chat screenshots are translated in the boxed sections.*
+
+> **Translator's note:** Lester's and Yogananda's words here are translated from the Chinese; the original English isn't in the repository.
+
+---
+
+**26 November 2020**
+
+**Online friend:** I don't want to make money from the Release Method now; I'll use it to reach freedom. Before, I did have the idea of making money by teaching the Release Method. Then I thought: *Get everything by releasing only* — so I can get money directly through releasing. Why make it so hard for myself?
+
+**Feng:** Releasing with the Release Method, you can get more money — and you can also gain things countless times better than money. Right, why try the way of struggle? *(laughs)*
+
+**Online friend:** Right.
+
+**Feng:** Releasing directly is what smart people do.
+
+**Online friend:** So now I feel I don't really want to share the Release Method. I just want to release directly and reach freedom. But if someone wanted to learn, I feel I'd share it as best I could.
+
+**Feng:** Mm. As far as possible, focus mainly on your own releasing. Before courageousness, sharing carries wanting control and approval.
+
+**Online friend:** Yes, I can clearly feel it.
+
+**Feng:** Courageousness is 50 per cent selfish, 50 per cent selfless. After that, you can decide to help others, and that will further your own releasing. If at that point you're still fixed on your own sense of ego, you'll stop releasing. Lester talks about all this in the videos. But for now, you should focus mainly on your own releasing.
+
+**Online friend:** What does “fixed on your own sense of ego” mean?
+
+*(Feng posted a section of Lester's talk from videos 3 & 4 of the celebration of Lester's 100th birthday. The text is as follows.)*
+
+> **Lester:** The freer you are, the more you want to give. You have to start giving. You should want to help anyone. In fact, when you make this the meaning of your life, you start going down this road.
+>
+> You have to become “Jesus Christ”. If he were here, what would he do? Start a company, set up a religious business, make some money? His only interest is helping others.
+>
+> I think most of us who finished the course experienced making the world into a good world, and then they started enjoying their lives.
+>
+> Ask Mike (a student who used the Release Method); he'll tell you. Mike stopped. When he was up there (at a peak of releasing), he had all those things, and then he found he needed to keep releasing. Remember you told me? But you stopped. You'd reached a peak; you only needed to keep going, and you'd have got to the place where you can create things instantly with a thought.
+>
+> When I first met Mike, he could hardly afford a few cups of coffee. For a while his head was full of negative thoughts, and then one day he started setting goals. *(Lester describes the change Mike went through — he got a part in a film.)* His next goal was a six-figure goal, and he achieved it simply and beautifully.
+>
+> Then he started going to extremes — buying houses, buying sports cars and so on…
+>
+> He actually had the answer: keep going (releasing). Later, when we met again, I said, “Mike, are you going to start helping others? That way you can go further.”
+>
+> He said no, and then he got stuck.
+>
+> He has his playground of material creations, but you can't possibly stay in it. You either go up or you go down. That's the lesson Mike taught himself: you can't stop; (you should) keep releasing.
+>
+> Mike, if you keep going, you won't be in this state. I mean (you can reach) the state where you can dematerialise (dissolve) the body and then materialise (re-form) it again, creating anything instantly, with just an effortless thought.
+
+*Yiman's note:* Lester also spoke with Mike in *Goals and Winning*, reminding him that he shouldn't stop releasing.
+
+Mike had once released for an important role in a Broadway film. Later he set the goals of making films in Hollywood and having six-figure savings. After achieving these goals, he became absorbed in fame and material things and stopped releasing. Lester said that at the time he was releasing better than the other graduates and should have kept releasing and striding forward, but Mike stopped.
+
+Lester said to Mike: “Anyway, you stopped, that's all. Look at the Six Steps: there's no stopping in the Six Steps. Don't let anything stop it; you just have to keep moving forward. In the period after you talked with me, you could have been completely free within a month or so, but you stopped. You wanted everything in the world and forgot that the happiness within is so wonderful — not the things of this world.”
+
+In Mike's case there are two very important points:
+
+First, whatever good state your releasing reaches, as long as you haven't reached the end, don't stop, because if you're not moving forward, you're going backwards.
+
+Second, once you've risen, don't forget to help others either. In *The Way to Ultimate Freedom*, Lester also says: “As our consciousness expands, our love automatically increases. By helping others, we help ourselves achieve our goals and gain further growth. Only with a loving attitude, with compassion, being one with everyone and wishing that others knew what we know, can we move towards enlightenment.”
+
+The book *Conversations with Yogananda* also says: “He (Yogananda) once told me that a soul must free six other souls before it can be freed. I (Walter) think God doesn't want us to seek Him only for ourselves, nor does He want us to merge with the Infinite without having helped others.”
+
+Helping others is helping yourself. Feng once found himself in a situation similar to Mike's. In the process of helping others he helped himself, and made a breakthrough in his releasing:
+
+**Feng:** Two years ago I released constantly once, for a week. At that time the AGFLAP in my mind had been mostly cleared out, and then I was in a very comfortable state, and the world around me showed a harmony it had never shown before.
+
+Then for a whole six months I didn't do a single release, and all that AGFLAP came back. I even forgot how to release emotions and wants, and I was stuck all the time. That's why I joined the group to talk things over.
+
+Later I found that people in the group didn't seem to know that Lester's later recordings and the original version of the Release Method existed. So I translated *The Way* and two parts of the 1992 course.
+
+In the course of translating, I went over it all again myself and remembered the key points. So I started releasing constantly again and, remembering the lesson of the last time, went forward in one go.
+
+Before you reach the end, you must not stop. Because as soon as you're not moving forward, you're moving backwards.
+
+After I started sharing, for some reason I was releasing more too. Every time I finished translating or sharing something, I had more motivation to release. I really experienced what Lester said: helping others is helping yourself.
+
+> **By helping others, we help ourselves**
+>
+> **Lester:** There's no need to go looking deliberately for people who need help; they'll come into our lives by themselves. Helping these people who sincerely want guidance is a duty. Remember: you are me.
+>
+> Interestingly, we begin to live more expansively, thinking less about our ego and more about others — and in fact we're helping ourselves.
+>
+> But the world doesn't see it that way; it may read it as us helping others. But no one needs help except ourselves; we ourselves are the biggest beneficiaries. By helping others, we help ourselves achieve our goals.
+>
+> Helping those who need help, making others happier too, doesn't mean giving up our own growth; we must never stop growing. By helping others, we gain further growth ourselves.
+>
+> The best thing we can do for others is to help them help themselves.
+>
+> Only when you've corrected yourself can you help others. I'll say it again: if you can't help yourself, don't help others. But do try to help others, because that will help you help yourself.
+>
+> — *The Way to Ultimate Freedom*, Chapter 19: How to Help Others
+
+> **[Screenshots 1–4, translated — 22 October 2020, Feng and group members]**
+>
+> **Feng:** For a moment I was aware of the thoughts of the whole universe.
+> **Feng:** It's hard to describe.
+> **Feng:** The most important part is that I was aware of three bodies.
+> **Feng:** I saw that when we release wants, the body of “cause and effect” is changing.
+> **Feng:** Let me explain this experience.
+> **Feng:** The very first body: when your desire arose, it immediately produced a cause, and you identified with that body.
+> **Feng:** Mm — I immediately found the corresponding thing in what Lester said: it's the causal body.
+> **Ran:** Causal, astral, physical body.
+> **Feng:** But when the causal body was searching for an object to satisfy it, after a slight delay, a body made entirely of light was produced.
+> **Feng:** This body was produced entirely by your picturing it when you had a desire.
+> **Feng:** This process is almost the same as the process by which your thoughts arise.
+> **Feng:** Next came up and down, front and back — thoughts in pairs came one after another.
+> **Feng:** Those constantly developing thoughts piled up, and the feelings went from light to heavy.
+> **Feng:** The heavy feelings piled up into a series of connections, relationships, a tangle of causes and effects.
+> **Feng:** The light began to solidify.
+> **Feng:** It used the image of this light body as a blueprint to form the physical body I now identify with.
+> **Feng:** I really experienced all this in an instant.
+> **Feng:** Why, for example, is our material world so sluggish?
+> **Feng:** Because creation is delayed.
+> **Feng:** Because you can't recognise that the mind is the cause, you imagined all those links of cause and effect.
+> **Feng:** But what is the cause?
+> **Feng:** The cause really is just the basic wants we keep talking about.
+> **Bingzi:** Mind programs.
+> **Mini:** The three basic wants.
+> **Feng:** You created a lack.
+> **Feng:** That lack wasn't filled immediately,
+> **Feng:** so it developed everything that followed.
+
+![Chat screenshot 1 (Chinese)](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-03-15-08-11.png)
+![Chat screenshot 2 (Chinese)](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-03-15-08-19.png)
+![Chat screenshot 3 (Chinese)](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-03-15-08-27.png)
+![Chat screenshot 4 (Chinese)](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-03-15-08-34.png)
+
+> **[Screenshot 5, translated — Feng]**
+>
+> **Feng:** When that lack is released, at the level of cause, it really is all over.
+
+![Chat screenshot 5 (Chinese)](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-03-15-08-39.png)
+
+> **[Screenshot 6, translated — 17 March 2021, Tiancheng and Feng]**
+>
+> **Tiancheng:** What does samadhi actually mean?
+> **Feng:** Samadhi is the state of union with the Infinite.
+> **Feng:** Even if you glimpse it once, you've entered samadhi.
+> **Feng:** But before it there are desire-realm concentration and many levels of meditative absorption.
+> **Tiancheng:** So when you enter samadhi you can know everything?
+> **Feng:** Many people take some very shallow experiences to be samadhi.
+> **Tiancheng:** All knowledge? About anything at all?
+> **Feng:** The moment you enter samadhi, you are all-knowing.
+> **Feng:** It's just that when you drop out of it, you forget.
+> **Feng:** But if it's *nirvikalpa samadhi*, you never lose it, and you never come out of it.
+> **Tiancheng:** Mm.
+
+![Chat screenshot 6 (Chinese)](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-03-15-08-44.png)
+
+> **[Screenshot 7 — 30 October 2020]** Feng: “The top is imperturbability — an absolute serenity that nothing can disturb… All-knowing, all-powerful, everywhere present. That is enlightenment.” Translated in full in [Untitled (31 December 2021)](../Release%20Method%20Diamond%20Island/05%20%E2%80%93%20Untitled%20%2831%20December%202021%29.md), screenshot 2.
+
+![Chat screenshot 7 (Chinese)](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-03-15-08-50.png)
+
+Keep it simple. Follow the Six Steps all the way through. Go to the end. — Feng
+
+---
+
+> **Translator's notes**
+> - **Mike** is the Michael mentioned elsewhere in this collection.
+> - **Walter** is presumably the narrator of *Conversations with Yogananda* (Swami Kriyananda, born James Donald Walters).
+> - **Ran, Bingzi and Mini** are group members.

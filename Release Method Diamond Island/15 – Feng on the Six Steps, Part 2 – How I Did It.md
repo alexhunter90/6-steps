@@ -1,0 +1,73 @@
+# Feng on the Six Steps, Part 2 | How I Did It
+
+*Original: [《风谈六步骤》连载2丨我如何做到](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E3%80%8A%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%E3%80%8B%E8%BF%9E%E8%BD%BD2%E4%B8%A8%E6%88%91%E5%A6%82%E4%BD%95%E5%81%9A%E5%88%B0.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+---
+
+Original article · by Yiman · Release Method Diamond Island · 10 February 2022, 16:08 · Filed under topic: #FengOnTheSixSteps serial (13 articles)
+
+❀ Hi ~ Welcome to the island ❀ — When you go within, you'll find that all happiness is there —
+
+∞
+
+**Read the book with questions in mind**
+
+**Learn actively**
+
+Yes — you can read the whole of *Feng on the Six Steps* with the following questions in mind, and at the end write down your answers on how to follow the Six Steps through, to remind yourself.
+
+1) How do I do and achieve Step One?
+
+2) How do I do Step Two?
+
+3) How well am I using Step Three? Have I set goals to achieve, or used Lester's pointers to freedom, so that I'm aware of feelings at all times and releasing them?
+
+4) How do I do Step Four?
+
+5) How well am I using Step Five?
+
+6) Am I using Step Six to check my releasing? Have I experienced Step Six?
+
+\* After reading this book, please write down the practical version of the Six Steps that you use day to day to remind yourself to release (page 27 of *Feng on the Six Steps* has an example). Use this page to remind yourself and pull yourself back in the right direction whenever your head is muddled, you don't know how to release, your releasing doesn't feel right or you've stopped releasing.
+
+Once you've written it, you can also copy it out again and stick it somewhere you'll often see it.
+
+**Yiman:** I've written many versions of a practical Six Steps process for myself. The two pictures below show two versions I've used myself, for your reference. I suggest you make a simplified, practical version, based on Feng's sharing about the Six Steps, that suits you for guiding your own releasing, so you can easily remind yourself day to day.
+
+**Why write the process for guiding your releasing on paper to remind yourself?**
+
+1. Our brains don't like ambiguity or things that aren't clear. When we want to release but aren't clear on the process, the brain uses that ambiguity to persuade us to do something that seems easier (like picking up the phone and scrolling through videos). Sometimes we don't lack motivation; we lack clear steps for doing something. Writing a clear process for guiding your releasing on paper removes the vagueness about how to practise releasing. Following the process directly can greatly improve your focus and drive.
+
+2. Don't underestimate our habitual tendency to avoid facing feelings. Until we're in a stable state of constant releasing, we very easily stop as soon as we feel fairly good. A practical Six Steps process reminds us to keep releasing and not look for chances to stop easily.
+
+3. When, for some reason, we've stopped releasing for a long time and suddenly want to release but don't seem to know where to start, a process written out beforehand can quickly tell us what to do, pulling us back onto the Six Steps to start releasing again.
+
+P.S.: You can buy a folder with clear plastic sleeves like the one below (stationery shops and Taobao have lots of styles) to collect what you write day to day about releasing (processes, gains, important reminders), keeping it all together so you can find it whenever you need it.
+
+> **[Screenshot 1, translated — chat posts by Yiman, 24 January 2022]**
+>
+> **Yiman:** Just be aware of the feeling right now and release it.
+> **Yiman:** Don't do anything outside the Six Steps.
+> **Yiman:** *(posts a photo of a page from the book* Feng on the Six Steps*, headed in large characters “Look Only at the Six Steps”. The page reproduces the chat in which Feng is asked why he could do it when so many people can't, and answers: “The Six Steps. Because you need other things, whereas I needed only the Six Steps.” Two lines are underlined in red.)*
+> **Yiman:** Why is it said that the Six Steps are a map, a satnav? What is a satnav's main purpose? To show you the right direction to your destination, and to check whether you've strayed from the right route.
+> **Yiman:** Releasing on the Six Steps means that nothing you do strays from the Six Steps.
+> **Yiman:** *(forwards a chat of Feng's:)* “When you don't want to release, remind yourself of Step One. Then decide to release — that's Step Two. Release wanting control and wanting approval directly — that's Step Three. Release constantly, keep it constant — that's Step Four. When you're stuck, release the wanting to control the stuckness — that's Step Five. Every release feels happier and lighter — that's Step Six. Follow the Six Steps all the way through, keep doing them, and the momentum towards freedom gradually builds, until Step One is fully achieved.”
+
+![Screenshot 1 (Chinese)](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/pictures/2022-04-28-12-50-42.png)
+
+> **[Screenshot 2, translated — chat posts by Yiman, continued]**
+>
+> **Yiman:** At the start of releasing we may want to mix in other practices to support releasing — practising awareness, insight meditation, meditation and so on. But with the Six Steps as a reminder, you know none of these are needed. Lester summed up everything you need to do (after learning to release, to reach ultimate freedom) in the Six Steps.
+> **Yiman:** That's why Feng often said you don't need anything beyond the Six Steps to reach freedom.
+> **Yiman:** Combining methods doesn't help releasing; it only weakens releasing's effect.
+> **Yiman:** It's not as if riding two horses at once will get you there faster.
+> **Yiman:** Keep it simple.
+> **Yiman:** Learn the releasing process, then use the Six Steps to remind yourself often.
+> **Yiman:** Be aware of the feeling right now and release it.
+> **Yiman:** That's all.
+
+![Screenshot 2 (Chinese)](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/pictures/2022-04-28-12-51-00.png)
+
+---
+
+> **Translator's note:** The article says the two pictures show Yiman's own written versions of the Six Steps process, but the pictures in the repository are the two chat screenshots translated above. The handwritten versions may not have been saved.

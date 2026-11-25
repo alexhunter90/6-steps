@@ -1,0 +1,284 @@
+# Conversations with the Master | The Secret of Success in Going Free, and the Departure of the Masters
+
+*Original: [与大师的对话：获得自由的成功秘诀与大师们的离开](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%B8%8E%E5%A4%A7%E5%B8%88%E7%9A%84%E5%AF%B9%E8%AF%9D%EF%BC%9A%E8%8E%B7%E5%BE%97%E8%87%AA%E7%94%B1%E7%9A%84%E6%88%90%E5%8A%9F%E7%A7%98%E8%AF%80%E4%B8%8E%E5%A4%A7%E5%B8%88%E4%BB%AC%E7%9A%84%E7%A6%BB%E5%BC%80.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words said in English in the original are kept as they were said and shown in italics.*
+
+---
+
+## Conversation 1
+
+**Question:**
+Teacher, in *The Way* 2 Lester encourages everyone to do it in the midst of activity. But in his autobiography he mentions needing to go somewhere secluded to do it. Isn't that a contradiction?
+
+**Feng:**
+No — you've read it wrongly. Lester talked about *isolate* elsewhere. There is only one place you can *isolate*, and that is in quietening your thoughts.
+
+You can't isolate yourself by shutting out the outside. The only place you can *isolate* is in a quiet mind.
+
+**Question:**
+In the first chapter of *The Way to Ultimate Freedom*, Lester also mentions things like “lock yourself in a room, and put a lock on the door”.
+
+**Feng:**
+That's explaining all-powerfulness. You only need to release; you don't need to do anything, and it will still work.
+
+**Question:**
+That isn't about what to do at the level of behaviour?
+
+**Feng:**
+No. The context is that a student asked whether he needed to go out and look for a job. Lester said no — just release; even with a lock on the door, it would work.
+
+It's emphasising that you don't need to do anything; you only need to release.
+
+**Question:**
+But when Lester began exploring, he really did shut himself away at home. He says so in the autobiography.
+
+**Feng:**
+If you don't believe me, just try it and you'll know. Try isolating yourself and see whether it helps.
+
+The group admin and others each tried it themselves for a few days. The group admin, A-Heng and others concluded, after going into retreat, that it was no use at all: you just escape, you don't release.
+
+**Question:**
+Then what about your retreat?
+
+**Feng:**
+I didn't deliberately go into retreat. I didn't do anything to force myself. I wanted to reach the end; I just released again and again. I didn't lock myself away — I simply forgot to have contact with people.
+
+**Question:**
+Teacher, can you tell us the way you succeeded?
+
+**Feng:**
+The Six Steps.
+
+**Question:**
+Why could you do it, when so many people can't?
+
+**Feng:**
+The Six Steps. Because you need other things, whereas I needed only the Six Steps.
+
+**Question:**
+So it has to be done in the midst of activity.
+
+**Feng:**
+The point is that you haven't done it. Before long you think of another mental question and start researching it — like this question.
+
+There are no contradictions in the Six Steps. But if you pick over Lester's words and twist and process them with your mind, you can always find so-called “contradictions”. That will immediately send you in the direction of limitation.
+
+Those mental questions, the material that strays from the Six Steps, will lead you away from freedom.
+
+I have a very intellectual brain, but I used my intellect correctly — that is, to recognise the limitations of the mind.
+
+Throughout the whole process, I looked only at the Six Steps. I didn't need anything outside the Six Steps. If there's a secret of success, that's it.
+
+People who keep collecting material don't reach the end — especially as their intellectual heads can't yet tell that material apart.
+
+**Question:**
+Then what should I do to reach the end?
+
+**Feng:**
+The Six Steps.
+
+## Conversation 2
+
+**Question:**
+Teacher, are you really leaving for good this time?
+
+**Feng:**
+Mm. I will leave the world.
+
+**Question:**
+Merging straight into the Infinite?
+
+**Feng:**
+No. No longer communicating with people — what people call *isolation*.
+
+**Question:**
+Is this your inner guidance?
+
+**Feng:**
+Mm. When I've decided, I go and do it.
+
+**Question:**
+Teacher, why can't you go on helping us?
+
+**Feng:**
+Leaving is the help. I can see the whole picture. If I stay here, no one will become free. Dependence is fatal to growth.
+
+**Question:**
+But when I need you, can you come and help me?
+
+**Feng:**
+Leaving completely is the help. Does an infinite being need help?
+
+When you look outside for help, that's an opportunity: become aware of it, and release.
+
+Find everything you want within. Absolute security exists only in your infinite being.
+
+Of all kinds of help, there's none better than destroying all your props.
+
+> “Lester told me the world would ‘knock out his props’, so that everyone would be forced to look within for the answers. ‘That's good,’ he said. ‘Not blowing up, but going up,’ he laughed. At present people always look for happiness outside, using all the escapes the world offers. Eventually, when the outer escapes become endless, he predicted, we'll be forced to move inside. ‘This is really a good thing,’ he said, ‘because people will be forced to find the answer, to know who they really are, just as I did.’ He always told me he was especially grateful for his heart attack.”
+
+> **Translator's note:** This passage is by someone close to Lester, recalling what he said. It is translated from the Chinese; the original English isn't in the repository.
+
+When the outer escapes are all knocked down, you'll be forced inward. But you can be more conscious and more active about it. Don't wait until there's a gun to your head before you do it.
+
+You all know yourselves very well — not that deeply, perhaps, but you know your own behaviour.
+
+When there's dependence, you cling. If you depend on the outside, you won't discover the infinite within. These things are all very simple.
+
+The Release Method, as a self-reliant method, doesn't have that many problems. All problems arise when you stray from the Six Steps. So either you go back to the Six Steps and carry on releasing, or you head towards limitation.
+
+As someone who has reached ultimate freedom, I can't stay here.
+
+**Question:**
+Why can't someone who has reached ultimate freedom stay here?
+
+**Feng:**
+Lester stayed here for decades, and it was all repeating himself — in his own words, “*over and over and over and over again*”. He kept saying the same things over and over.
+
+The year before he left, he said to one of his students, “I can't stay here any longer. While I'm here, you'll just depend on me, and no one will become free.”
+
+Because they thought Lester was here and could guide them, they kept forgetting. Not long after Lester left, that woman at the Sedona Institute became free.
+
+I've talked with Lester about many things from his past. While he was alive, no one became free under his guidance.
+
+**Question:**
+You've talked with Lester?
+
+**Feng:**
+I often talk with Lester.
+
+**Question:**
+Was this free master a Release Method teacher or a student?
+
+**Feng:**
+A student. No Release Method teacher became free. And most of the teachers Lester appointed were ones he felt didn't have such good tendencies — that is, more inclined towards the world.
+
+**Question:**
+How do you talk with him?
+
+**Feng:**
+Free beings don't need any medium to communicate. We exist at every point. There is no separation between us.
+
+**Question:**
+I no longer have any idea of becoming a Release Method teacher.
+
+**Feng:**
+You may in future, unless you release the drive of those programs. If you don't release them, they'll keep driving you to cook up schemes.
+
+All brilliance, all creativity, comes from infinite being. The mind is a mechanical program; it can only repeat. You might say that only a person freed from the mind's programs truly begins to live. Before that, you're a robot being driven on and on.
+
+**Question:**
+Yesterday a friend came to me, and after we talked about the Release Method he sent me some money. This time I refused it, even though I'm quite poor right now, because I don't want to charge for the Release Method.
+
+**Feng:**
+*well*, making money from this would give you false feedback: talking about the Release Method instead of actually releasing. These things very easily lead people astray.
+
+Spiritual books, too, are what most easily lead people astray, because while reading them people fool themselves that they're on the path. When you stray, if you know you're straying, you can turn back.
+
+So you don't need anything beyond the Six Steps. *The Way* is good; the masters' books are good; *The Way to Ultimate Freedom* is good too.
+
+But when reading them stops you releasing, they're not good. Ralph once took a book by Ramana Maharshi and kept reading and studying it.
+
+Later Lester said, “You're crazy — you could have been releasing.” Lester told me he tried countless times to correct his students' tendencies.
+
+His students would think up all sorts of ways to escape — for example, asking “What am I?”, which is a very lofty-sounding way of escaping.
+
+Lester did advocate that method for a particular period, but they were only escaping releasing.
+
+He taught it in the age when that path could still succeed. That age ended in 1970; no one will succeed with that method any more.
+
+**Question:**
+Teacher, is there anything else you want to tell me?
+
+**Feng:**
+Actually none of the above needed saying. The less said the better. Is it any use for the mind to accumulate those things? To reach freedom, everything accumulated has to be released.
+
+Even Swami Kriyananda was held back. He recalled Yogananda's teachings word for word. Was that any use? None at all. He wrote books for his guru and promoted him, instead of actually doing it. Freedom has to be done.
+
+**Question:**
+Where did Swami Kriyananda actually get to?
+
+**Feng:**
+Swami Kriyananda reached the stage of *dhyana* (meditative absorption), but not samadhi.
+
+**Question:**
+So he can still fall back?
+
+**Feng:**
+Mm. As long as you can't do it, talking about it is no use.
+
+**Question:**
+Did Master Yogananda go on helping him?
+
+**Feng:**
+The best help is leaving.
+
+**Question:**
+Yogananda leaving Kriyananda was the best help?
+
+**Feng:**
+As long as Yogananda was there, he would always look to his guru, always treat his guru as the source of knowledge and power. And that way it's impossible to be free. However much he called, Yogananda would not come.
+
+To turn around, you must be unable to find security outside. Only when you can't find a master outside will you find one within yourself.
+
+**Question:**
+You didn't depend on a guru. Was that one of the advantages that led to your success?
+
+**Feng:**
+Mm. And I never thought of calling on Lester or any other master. When I studied Mahayana Buddhism, I leaned towards Zen and away from Pure Land. That was my advantage: I only wanted to go it alone.
+
+**Question:**
+Self-reliance.
+
+**Feng:**
+Mm. That's been a tendency of mine for a long time.
+
+**Question:**
+Reading what you shared in the group before was quite helpful.
+
+**Feng:**
+When you feel that reading something is helpful, you'll keep on reading it. If you go back to the Six Steps, it's very simple.
+
+But reading other writings — even masters' teachings, even Lester's own teachings — will make your mind more and more complicated, because the mind tends to complicate things.
+
+You also like “clinging to rites and rules”. Moses and Jesus forbade idolatry in their teachings, and the Buddha called a certain kind of behaviour “clinging to rites and rules”: the belief that sacrifices and similar activities help bring liberation.
+
+In fact, they're no use. All your organising of masters' photos is no use at all. On the contrary, it rests on a wrong view — the view of clinging to rites and rules.
+
+You think things to do with outer images and rituals help. When you do that, you deepen this view, and so move away from infinite being, which can only be found within.
+
+You've come to know the masters, yet you still treat them in a worldly, superstitious way.
+
+**Question:**
+Yes, I have to admit it. So what should I do?
+
+**Feng:**
+What should you do? There's only one solution: the Six Steps. Release. If I said there was a second solution, you wouldn't release.
+
+**Question:**
+Teacher, please tell me any other mistakes I'm making.
+
+**Feng:**
+You're making a mistake right now, because you're not releasing. Not releasing is the mistake. At any time, in any place, not releasing is the mistake — even if you're listening to me talk.
+
+**Question:**
+Teacher, could you leave me a letter before you go?
+
+**Feng:**
+No. The Six Steps. Follow the Six Steps all the way through, and go to the end.
+
+I hope that after I've gone you won't depend on those writings or anything else, but go straight to the end.
+
+*again*, beyond the Six Steps, you don't need anything else. Whatever happens, it's still just the Six Steps.
+
+**Feng:**
+Follow the Six Steps all the way through, and in one or two months you can travel the whole path and reach the end (all-knowing, all-powerful, everywhere present).
+
+---
+
+> **Translator's notes**
+> - ***The Way to Ultimate Freedom*** (终极自由之路) is the title of a Chinese edition of Lester's teachings. The English edition may have a different title.
+> - **“Props”** (支柱) are the outer supports — people, things, situations — that we lean on for security.
+> - ***Dhyana*** (禅定) is meditative absorption. In yogic terms it is the stage before samadhi.
+> - **Pure Land** (净土宗) Buddhism relies on calling on Amitabha Buddha for rebirth in his paradise. **Zen** (禅宗) emphasises direct realisation through one's own practice.

@@ -1,0 +1,447 @@
+# The Complete Map to Ultimate Freedom Using the Release Method
+
+*Original: [使用释放法到达终极自由的完整地图](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%BD%BF%E7%94%A8%E9%87%8A%E6%94%BE%E6%B3%95%E5%88%B0%E8%BE%BE%E7%BB%88%E6%9E%81%E8%87%AA%E7%94%B1%E7%9A%84%E5%AE%8C%E6%95%B4%E5%9C%B0%E5%9B%BE.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+*Words said in English in the original are kept as they were said and shown in italics. Chat screenshots in the original are translated in the boxed sections.*
+
+---
+
+(3,600 Chinese characters) · 25 September 2021 · The Shortcut to Freedom · (Source: 360doc.com)
+
+## Talk 1 — 30 October 2020
+
+**Feng:** Use this method.
+
+**Feng:** Release wanting control and wanting approval. Release the programs that cover over “the fear of death”.
+
+**Feng:** Then allow “the fear of death” to come up, and release it completely.
+
+**Feng:** At first, what you're releasing are the programs of wanting control and wanting approval.
+
+**Feng:** You're only releasing these two kinds of program.
+
+**Feng:** As you release, those feelings — those thousands upon thousands of thoughts about the body — disappear.
+
+**Feng:** When you release the fear of death at the very bottom, your whole mind disappears.
+
+**Feng:** Your sense of separation dissolves, and what remains is infinite being.
+
+**Feng:** You will naturally identify with being infinite being.
+
+**Feng:** Is that clear enough?
+
+**Feng:** *(laughing emoji)*
+
+---
+
+## Talk 2 — 30 October 2020
+
+**Feng:** The other matter is the question of “the sense of separation” and “the fear of death”.
+
+**Feng:** Roller has just translated that piece.
+
+**Feng:** Over the last few days, after releasing “the fear of death”, I came up against that *separation*.
+
+**Feng:** So I think this topic needs clarifying further.
+
+**Feng:** Because what I said about it before (editor's note: before Feng verified the Six Steps) was still mixed with some imagination from the head.
+
+**Feng:** Let me go on with the topic of *separation*.
+
+**Feng:** I released “the fear of death” constantly for several days.
+
+**Feng:** And indeed a strong feeling of “I am this body” welled up.
+
+**Feng:** But when I made contact with it, the fear of death arose again.
+
+**Feng:** “The sense of separation” is the very first feeling. It says, “I am this body, separate from infinite being.”
+
+**Feng:** If you want freedom, the only things to release are wanting control, wanting approval and the fear of death.
+
+**Feng:** When I made contact with “the sense of separation”, I saw one thing:
+
+**Feng:** If I really release all of the fear of death, it dissolves by itself.
+
+**Feng:** Because it's this program that stops you seeing it clearly.
+
+**Feng:** So keep it simple.
+
+**Feng:** Release the wanting control and approval that cover over “Program No. 1” (the fear of death).
+
+**Feng:** Then release the fear of death.
+
+**Feng:** And it's over.
+
+---
+
+## Talk 3 — 1 December 2020
+
+**Question:** Feng, in *Goals and Winning* Lester said the first desire is the desire to be separate. Why doesn't the Release Method treat that as the first desire?
+
+**Feng:** The sense of separation.
+
+> **[Chat screenshot, translated — 30 October 2020, between “Feng (Feng Master)” and Tiancheng]**
+>
+> **Feng** (16:14): I've touched the sense of separation beneath the fear of death.
+> **Feng:** I know I'm nearly at the end.
+> **Tiancheng:** Is it the sense of separation that causes wanting to survive?
+> **Feng:** Yes — it's this sense of separation: “I exist as a body”.
+> **Feng:** It's because you feel “I am this body” that you want to survive and fear death.
+> **Tiancheng:** Mm.
+> **Feng:** If you know you are infinite being, you won't have any fear of death.
+> **Tiancheng:** Right.
+> **Feng:** But you don't need to release it deliberately.
+> **Feng:** When you completely release the fear of death, the sense of separation dissolves too.
+> **Feng:** The whole mind becomes still.
+> **Feng:** What remains is infinite being.
+
+![Chat screenshot (Chinese)](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/pictures/2022-04-28-00-10-48.png)
+
+**Question:** *(sends a photo of a page from the Chinese edition of Lester's book)*
+
+> **[Photo of a book page, translated.]** *The photo shows a page from the Chinese translation of Lester's book, with words underlined and “absolute happiness” handwritten in the margin. This is translated from that Chinese page, not Lester's original English. The edges of the page are cut off.*
+>
+> **Chapter One: The Basic Goal and How to Achieve It**
+>
+> Every one of us in this world is looking for exactly the same thing. Every living being, even animals, is looking for it. And what is it that we are all always looking for? *Happiness with no sorrow!* — a continuous state of happiness untouched by any sorrow. If this is our common goal, why? Because unlimited happiness is our most basic nature. Before we obstructed it with limitation, this was our true, natural state. So why do most of us not have this sorrowless happiness? There is only one reason: as infinite beings possessing unlimited happiness, we said, with joy and happiness, “*I am an individual, separate from everything.*” To make myself separate from everything, I had to bring it about in some way. The way was: *my mind created my body and the material world.* Then I carried on, creating more and more thoughts, and these thoughts created more and more material events, until thoughts and matter trapped me and I forgot my true identity as infinite being.
+>
+> “I am separate from everything” — this very first thought necessarily creates a lack; lack creates…
+
+![Photo of a book page (Chinese)](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/pictures/2022-04-28-00-11-24.png)
+
+**Question:** So releasing the fear of death is also releasing the sense of separation at the same time?
+
+**Feng:** Every release is a release of the sense of separation.
+
+**Feng:** *(quoting Lester)* “However, when you release from this bottom line, you can be free within a few months; constant releasing will get you there. With the momentum you're in now, you can do it. As you keep releasing, you'll *get high*. And from that high place you can release deeper and pull up the fear of dying. When you let go of the fear of dying, an even more intense agony appears — ‘the feeling of separation’. (*When you're free of that fear of dying, there is a much stronger agony--the feeling of separation.*) But because you've already released so much garbage by then, when you let go of the fear of dying you're able to handle it and dissolve this feeling of separation — and then you're simply *There*.”
+
+> **Translator's note:** Only the sentence in brackets is Lester's original English, as given in the Chinese text. The rest of this quotation is translated from the Chinese.
+
+**Feng:** After you release the fear of death, you'll come into contact with the sense of separation.
+
+**Feng:** At that point it's a choice: choose to be infinite being, or a separate individual.
+
+**Feng:** When you identify with your infinite being, you are it, instantly.
+
+**Question:** After releasing the fear of death, the work still isn't done?
+
+**Feng:** When it's completely released, it's done.
+
+**Feng:** If the sense of separation comes up, you haven't yet completely released the fear of death.
+
+> **[Chat screenshot, translated — 20 November 2020, between Feng and Tiancheng]**
+>
+> **Feng** (22:05): I've gone deep into the last bit of limitation inside.
+> **Tiancheng:** Is it the sense of separation?
+> **Feng:** Yes, it's the sense of separation.
+> **Feng:** And I'm keeping just that tiny bit of the fear of death that's exactly enough to *hold* the sense of separation.
+
+![Chat screenshot (Chinese)](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/pictures/2022-04-28-00-12-31.png)
+
+**Feng:** I told you about this before.
+
+**Feng:** If you want to *hold* on to the sense of separation, you have to keep a little of the fear of death.
+
+**Feng:** Otherwise the sense of separation dissolves.
+
+**Feng:** When you completely clear out the fear of death, the mind's programs are completely cleared.
+
+**Question:** And the sense of separation is cleared too, so you reach the state of “I am everything” — is that right?
+
+**Feng:** Infinite being.
+
+**Question:** No more feeling of separation?
+
+**Feng:** Mm. No more feeling of “I am an individual”.
+
+**Feng:** No more feeling that you are a body.
+
+**Question:** Even while still using a body?
+
+**Feng:** Mm.
+
+**Feng:** You watch the body move.
+
+**Question:** You just said every release is a release of the sense of separation.
+
+**Feng:** Yes.
+
+**Feng:** Our beingness built a mind — “imagining that it is a body”. So everything you do, and everything we'll keep doing until we're free, is to remove this sense of separation.
+
+**Feng:** The sense of separation is really the *sense of ego*.
+
+**Question:** Could you also say that what we release is the sense of being an individual — the feeling “I am an individual”?
+
+**Feng:** The sense of self.
+
+**Feng:** *The Way* doesn't use the word *separation*.
+
+**Feng:** It uses *sense of ego*.
+
+**Feng:** The sense of self.
+
+**Feng:** Every time you release, you are releasing your sense of self.
+
+**Feng:** Recognise that God acts through you.
+
+**Question:** “It is not I, but the Father working through me.” That's a slogan I used to repeat all the time. *(laughing emoji)*
+
+**Feng:** Release until it becomes your experience.
+
+**Question:** Mm. Are you living in that experience now?
+
+**Feng:** Basically, yes.
+
+**Feng:** I rarely use the head to decide anything.
+
+**Feng:** But it isn't a passive feeling.
+
+**Feng:** It's a wonderful, blissful feeling.
+
+---
+
+## Talk 4 — 16 December 2020
+
+**Question:** Do you still watch films now?
+
+**Feng:** I don't do any entertainment —
+
+**Feng:** unless I want to drag myself down.
+
+**Feng:** Doing things is fine.
+
+**Feng:** But when you watch a film, if your intention is on the film and you get carried away by the plot, you can't release.
+
+**Feng:** Because you're getting happiness from the plot instead of from within.
+
+**Question:** Teacher Feng, can you tell what state each of us is in?
+
+**Feng:** I can.
+
+**Question:** Who in this group can become free?
+
+**Feng:** Try it — how will you know if you don't try?
+
+**Question:** Could the first person to go free be in our group?
+
+**Feng:** Anyone can be free.
+
+**Feng:** But very, very few people want to be free.
+
+**Question:** Teacher Feng, could you lead us in releasing as a group?
+
+**Feng:** I don't lead group releasing. It wouldn't help.
+
+**Feng:** Real help is treating the Release Method as a self-reliant method.
+
+**Feng:** No one can reach freedom by depending on someone else.
+
+**Feng:** That goes in exactly the opposite direction.
+
+**Feng:** The attempt to look for power outside yourself keeps you from discovering the source of real, infinite power.
+
+**Feng:** *That's it*
+
+**Feng:** *(laughing emoji)*
+
+**Question:** Why don't you develop an even simpler method for all beings to go free?
+
+**Feng:** There are 112 methods in all.
+
+**Feng:** In different ages, masters reveal different methods.
+
+**Feng:** The method best suited to this age is the Release Method.
+
+**Feng:** That's why the masters departed one after another around 1952.
+
+**Feng:** Yogananda in particular chose to leave on 7 March 1952.
+
+**Question:** Of the 112, are there any that aren't self-reliant?
+
+**Feng:** All of them require self-reliance.
+
+**Question:** Oh. I feel it's hard for people to be self-reliant in this age. For example, how should I help others? People today only look at results — unless I go free first.
+
+**Feng:** Truly helping others means releasing your sense of self.
+
+**Feng:** You'll know from a higher perspective what is best to do for a particular person,
+
+**Feng:** instead of only helping on the surface.
+
+**Question:** This “sense of self” is…?
+
+**Feng:** *sense of ego*
+
+**Feng:** It's your mind.
+
+**Feng:** The mind is built around the ego.
+
+**Question:** While we're releasing, would it be faster to also use the love method from Lester's book on the power of love?
+
+**Feng:** No.
+
+**Feng:** In fact Lester told you in the audios:
+
+**Feng:** It took him three months, and those three months included time spent exploring.
+
+**Question:** I find one month a bit hard to believe.
+
+**Feng:** He said that if he had known the Six Steps from the start, it would have taken him only a month or less.
+
+**Feng:** Simple, or impossible.
+
+**Feng:** If you can't do it in one month, and you still can't in two, then freedom is impossible for you.
+
+**Feng:** You can't drag it out for a long time. You can't say, “I'll do a little every day, and in ten-odd years I'll be free.”
+
+**Question:** So that means you don't really want freedom at all, and that's why you can't do it.
+
+**Question:** Why can't it be dragged out for a long time?
+
+**Feng:** Follow the Six Steps all the way through: either you settle it within a month or two, or you'll never do it in this lifetime.
+
+**Feng:** Because if you're not free after a month or two, then you're not on the Six Steps.
+
+**Feng:** And if you're not on the Six Steps, how could you possibly be free?
+
+**Question:** Just the Six Steps on their own, without combining them with the love practice?
+
+**Feng:** Yes. The Six Steps are the complete map.
+
+**Feng:** You don't need to add anything else to them.
+
+**Question:** You know what state each of us is in. Am I releasing correctly or not? I release every day and it never ends.
+
+**Feng:** Definitely not correctly.
+
+**Feng:** Releasing according to the Six Steps, you can reach an extremely high state within a week —
+
+**Feng:** even enter *nirvikalpa samadhi*.
+
+**Feng:** If you drag the process out for a long time, then you're definitely not in the Six Steps.
+
+**Feng:** Lester tells you that one release is equal to months of meditation.
+
+**Feng:** One release takes only a few seconds.
+
+**Feng:** A few seconds are all you need for the equivalent of months of meditation.
+
+**Feng:** This method is extremely efficient.
+
+**Question:** Where are we going wrong? A whole day of releasing doesn't get the effect of one release.
+
+**Feng:** Look at the Six Steps and you'll see whether you're in them.
+
+**Question:** Definitely not Step One.
+
+**Feng:** If you're in the Six Steps, your releasing will be constant, and your joy will keep increasing too.
+
+**Question:** Step Two — is the decision for freedom a decision to be free, or a decision to release?
+
+**Feng:** Make the decision to be free.
+
+**Feng:** Decide that you won't stop until you reach freedom.
+
+**Feng:** When the Buddha sat under the tree, he decided, “I will not rise from this seat until I find the way to liberation.”
+
+**Question:** At our level now, can't we set aside Steps One and Two for the time being? We'll only use them once we reach the fruit of stream-entry, won't we?
+
+**Feng:** It isn't about setting aside Steps One and Two.
+
+**Feng:** Fully achieving Step One requires stream-entry.
+
+**Feng:** But if you don't actively use Steps One and Two, you can't reach stream-entry either.
+
+**Feng:** The Six Steps need you to carry them out actively.
+
+**Feng:** Then, when you fully achieve Step One, the last five steps carry you along.
+
+**Question:** But honestly, sometimes I don't want freedom that much.
+
+**Feng:** That's why, for you, the most practical thing is the teaching Lester recommended most:
+
+**Feng:** *get everything by releasing only*
+
+**Feng:** Because you always have wants.
+
+**Feng:** Deciding to get every single thing you want through releasing will also keep you releasing non-stop.
+
+**Question:** What do you mean?
+
+**Feng:** Until you reach the end, you'll have things you want.
+
+**Feng:** *everything means everything*
+
+**Feng:** Everything is everything.
+
+**Feng:** Getting everything you want just by releasing — this too lets you follow the Six Steps through.
+
+**Feng:** Pick up any one of these teachings, and you can be free.
+
+**Question:** Through what channels does everything we get manifest?
+
+**Feng:** Any channel.
+
+**Feng:** First you get what you want through the material world. Then you reach the stage Lester called “materialising and dematerialising”.
+
+**Question:** What do you mean by “through the material world”?
+
+**Feng:** The things Lester showed you — what you want comes effortlessly.
+
+**Feng:** Michael reached this stage.
+
+**Feng:** But Lester said he didn't go on.
+
+**Feng:** If he had gone on, he could have materialised and dematerialised —
+
+**Feng:** made matter appear in an instant and disappear in an instant.
+
+**Feng:** You'd only have to change the picture in your mind, and matter would change immediately.
+
+**Feng:** Having reached this stage, you still need to keep releasing,
+
+**Feng:** completely transcending the karma of the physical, astral and causal worlds,
+
+**Feng:** and reach infinite being.
+
+**Question:** There must be a reason Feng came into this group today.
+
+**Feng:** I'm just going over the complete map again.
+
+**Question:** Thank you — it's much clearer again.
+
+**Question:** Really, without a teacher's guidance, who knows how many lifetimes it would take? We'd all be going round in circles on detours.
+
+**Feng:** You're welcome.
+
+**Feng:** Keep it simple. Follow the Six Steps all the way through.
+
+---
+
+## Talk 5 — 2 January 2021
+
+**Feng:** In the Release Method, following the Six Steps all the way through brings you to the end.
+
+**Feng:** Not following the Six Steps through, you won't reach the end.
+
+**Feng:** Do it, or don't.
+
+**Feng:** As Lester said to Ralph at the very end:
+
+**Feng:** “Either you do it or you don't. I hope you do it.”
+
+**Feng:** Simple, or impossible.
+
+---
+
+*Feng: Follow the Six Steps all the way through, and you can travel the whole path and reach the end in one or two months.* (This linked article is missing from the original collection.)
+
+---
+
+> **Translator's notes**
+> - **“Program No. 1”** — Feng calls the fear of death the number-one program, the deepest one, which all the others cover over.
+> - **Roller** is the name of someone in the group who translated a Lester text into Chinese.
+> - ***Goals and Winning*** and the book on **the power of love** are Lester Levenson's books. The page photographed here is from a Chinese edition.
+> - **Michael** and **Ralph** are people Lester talks about in his recordings. The text doesn't say more about them.
+> - **Yogananda** is Paramahansa Yogananda, author of *Autobiography of a Yogi*. He died on 7 March 1952.
+> - **“112 methods”** probably refers to the 112 meditation techniques of the *Vigyan Bhairav Tantra*.

@@ -1,0 +1,91 @@
+# Foreword
+
+*Original: [前言](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E5%89%8D%E8%A8%80.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+> **Translator's note:** This is the foreword to the collected book *Feng on the Six Steps*. The editor's note largely matches the [Editor's Preface](../Release%20Method%20Diamond%20Island/14%20%E2%80%93%20Feng%20on%20the%20Six%20Steps%2C%20Part%201%20%E2%80%93%20Editor%27s%20Preface%20%E2%80%93%20Release%20by%20Following%20the%20Six%20Steps%20All%20the%20Way.md) published in the serial, so the translation matches that one where the text is the same. Lester's words are translated from the Chinese; his original English isn't in the repository.
+
+---
+
+## With gratitude to Mr Lester Levenson, founder of the Sedona Method
+
+![A photo of Lester](../chinese/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/pictures/2022-05-02-17-18-42.png)
+
+(19 July 1909 – 18 January 1994)
+
+> As long as you want help, I will never leave you.
+> Now the “real me” sees you as the “real you”. When I'm not here, not with you in this physical body, it is the real Self that helps you.
+> Any time you call on the real me, you will find the real me is right there. What happens is that you rise up, so that you can get the answer yourself — you must get it.
+>
+> — Lester Levenson
+
+---
+
+Thank you, Feng, for sharing the Release Method so candidly, patiently and thoroughly. You have given me boundless inspiration and motivation, and you are the best example on my road to freedom. Thank you for spreading the original Release Method. Heartfelt thanks for your selfless sharing and guidance.
+
+Thank you to the teachers who teach and spread the original Release Method.
+
+Thank you to “I Am Infinite”, who runs the WeChat account “Original Sedona Release Method”, and to Tiancheng, who runs the WeChat account “The Shortcut to Freedom”. Thank you to everyone else in the media who shares the Release Method.
+
+Thank you to the subtitle and translation team for the 1992 original Release Method course videos: videos 1, 4, 5, 7 and 8, subtitles and translation by Tong; video 3, subtitles and translation by Fay; videos 2 and 6, translation by Hui-Lucky. You have made a huge contribution to spreading the original Release Method.
+
+Thank you to everyone online who has selflessly translated and produced study materials, and to everyone who practises and promotes the Release Method.
+
+Thank you to everyone who has guided and accompanied us in our learning along the way. Thank you all.
+
+---
+
+## Editor's Note
+
+I began exploring spirituality around mid-October 2019, and in March 2020 I came across the Release Method. Although the very first time I tried it I felt how simple and quick it was for releasing emotions, I hadn't yet come across the original Release Method. Learning releasing from the text of Larry's and Hale's books felt roundabout and unclear about the key points, so I gave up releasing partway and kept using the cleaning method instead.
+
+But although I'd stopped releasing for the time being, the Release Method stayed on my mind, and I knew it was the more complete method.
+
+Then Feng appeared. Just like his name, “Wind”, he was like a warm spring breeze blowing away the confusion and stuffiness in the releasing scene, bringing clear guidance and bright hope to those of us groping our way along the path of releasing.
+
+He not only made the key points of practice clear and cleared up all kinds of confusion I had about releasing, he also showed me the core thing you most need to hold on to in order to reach the end: following the Six Steps all the way through.
+
+Whenever people online asked questions about releasing, Feng always answered very patiently and in detail. With his powerful memory and his familiarity with Lester's teachings, he always based his answers on, and quoted from, what Lester had explained. Although he had ranged widely in spiritual matters, he rarely quoted other methods or theories to show himself off. He made a huge contribution to spreading the original, pure Release Method.
+
+The way he conducted himself, his learning and wisdom, his unremitting pursuit of freedom — every one of these inspired me and gave me the motivation to keep practising releasing.
+
+The real examples of him living “getting everything just by releasing” encouraged me greatly when I was slacking. And finally, when he reached the end through constant releasing, I felt for the first time that “enlightenment” was so close to me.
+
+Feng, who practised the Release Method himself and finally reached freedom, was — after Lester — the window that once again turned my attention towards infinite being.
+
+You could say it was Feng's sharing that pulled me back to the Release Method. Without him clarifying the method and patiently stressing the key points again and again, it would have been hard for me to get onto the right path of releasing.
+
+I must also thank “I Am Infinite”, who runs the WeChat account “Original Sedona Release Method”. It was your rigorous, selfless sharing that let more people access detailed original Release Method material. Thank you so much for all you've given.
+
+It was your rigour that created an atmosphere better suited to learning the Release Method, which drew Feng into the group to share, and finally gave the original Release Method the chance to be revealed to people online who were interested in releasing.
+
+Special thanks also to Tiancheng, who, faithfully following Feng's wish that the Release Method be spread for free, selflessly shared Feng's chat records with everyone. He is very good at asking questions. Without him as an excellent “questioner”, we might never have known many of the key points and reminders about releasing.
+
+On the path of exploring releasing, I'm very grateful for the help, reminders and encouragement he gave me, and for his WeChat account “The Shortcut to Freedom”.
+
+Feng's explanations and sharing about the original Release Method over the half-year from September 2020 to March 2021 are undoubtedly a treasure trove for learning releasing.
+
+At first I organised the material with a self-help attitude. Later I took the Six Steps as the main thread, selected some of the content, and strung together the sharings scattered everywhere like pearls, gathering them into a volume. That way I and everyone else can get an overall understanding of releasing and also keep reminding ourselves to follow the Six Steps through.
+
+I hope this book, *Feng on the Six Steps*, can guide you in learning to use the Six Steps, help you to help yourself better, and follow the Six Steps through until you reach the end.
+
+But anything in the nature of reference material has to be put down in the end. There's no need to accumulate content in the head and develop the mind. The mind is an obstacle; learning needs personal experience.
+
+As Feng said: “Releasing is a person's most natural ability, but enough mental content will obstruct this ability. When you forget to release, it isn't because you haven't learned enough, or accumulated enough knowledge — it's because you've accumulated too much. When you accumulate a lot, you're developing your mind, and that covers up and weakens your ability to release.”
+
+So this book too has to be put down in the end. Just go back to the Six Steps and keep it simple as you release.
+
+Reading books, talking, sharing and so on can't replace actually releasing. Only releasing constantly is real progress.
+
+Lester once said that the Release Method is the only simple method in the world today for reaching ultimate freedom. In getting to know other spiritual methods and practising releasing, I have truly felt this for myself.
+
+In the state of constant releasing, I have felt how the Six Steps link together, one into the next. They really are a clear map that guides you along the right path of releasing.
+
+Welcome to the journey of releasing. Value the Six Steps, keep releasing, and release constantly all the way to ultimate freedom. I wish you success.
+
+The only way to express love and gratitude to Lester and Feng is to put into practice, all the way, what they taught — to go in the direction they always pointed, to the end, and gain freedom.
+
+Let me end with Lester's words: “The path we are on begins here and goes all the way to complete freedom. That's the first point I want to stress. The second is that we can reach it in this lifetime! For many people with the same goal, it usually takes many lifetimes. But we can do it in this lifetime.”
+
+Blessings to all of you on the path. Keep going!
+
+Yiman, 20 September 2021, Mid-Autumn Festival

@@ -1,0 +1,17 @@
+# Untitled (18 February 2022)
+
+*Original: [无标题2022-02-18](../chinese/%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E6%97%A0%E6%A0%87%E9%A2%982022-02-18.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
+
+---
+
+18 February 2022 · The Shortcut to Freedom · read 8 times, shared 1 time
+
+“Whose program is it?” Lester asked me when I told him I was stuck on a program.
+
+“Mine,” I answered cautiously.
+
+“Then only you can get rid of it. You put it there yourself, so only you can take it out.”
+
+— *Lester and Me*
+
+> **Translator's note:** This short passage is translated from a Chinese edition of a memoir by Lester's student Stephen (Chinese title 《我和莱斯特》, “Lester and Me”). The original English isn't in the repository.
