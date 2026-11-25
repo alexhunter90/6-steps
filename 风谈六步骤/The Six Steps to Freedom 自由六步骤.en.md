@@ -1,6 +1,6 @@
 # The Six Steps to Freedom
 
-*Original: [The Six Steps to Freedom 自由六步骤](The%20Six%20Steps%20to%20Freedom%20自由六步骤.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README-EN.md)*
+*Original: [The Six Steps to Freedom 自由六步骤](The%20Six%20Steps%20to%20Freedom%20自由六步骤.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
 
 > **About this document.** This chapter of the book *Feng on the Six Steps* is mostly chat screenshots. Each screenshot is translated in a box, followed by the original image. Where a screenshot shows a conversation already translated in full elsewhere in this collection, the box says so and links to it, so the same text isn't repeated. English already in the original (Lester's words, an English version of the Six Steps and a page from the English workbook) is kept exactly as it appears. Where the original gives a Chinese translation of that English, Claude's translation is shown alongside it.
 

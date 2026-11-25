@@ -1,6 +1,6 @@
 # Feng on the Six Steps: Step 3
 
-*Original: [风谈六步骤 Step 3](风谈六步骤%20Step%203.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README-EN.md)*
+*Original: [风谈六步骤 Step 3](风谈六步骤%20Step%203.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
 
 *Words that Feng said in English in the original are kept as he said them and shown in italics. Chat screenshots are translated in the boxed sections.*
 

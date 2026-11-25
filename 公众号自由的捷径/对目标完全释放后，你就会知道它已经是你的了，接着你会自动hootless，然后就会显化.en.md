@@ -1,6 +1,6 @@
 # Once You Fully Release on a Goal, You Know It's Already Yours; Then You Automatically Go Hootless, and It Manifests
 
-*Original: [对目标完全释放后…](对目标完全释放后，你就会知道它已经是你的了，接着你会自动hootless，然后就会显化.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README-EN.md)*
+*Original: [对目标完全释放后…](对目标完全释放后，你就会知道它已经是你的了，接着你会自动hootless，然后就会显化.md) · English translation by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](../README.md)*
 
 *Words said in English in the original are kept as they were said and shown in italics. Screenshots in the original are translated in the boxed sections.*
 

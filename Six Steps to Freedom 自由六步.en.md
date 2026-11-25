@@ -1,6 +1,6 @@
 # Six Steps to Freedom
 
-*Original: [Six Steps to Freedom 自由六步](Six%20Steps%20to%20Freedom%20自由六步.md) · English translation of the Chinese by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](README-EN.md)*
+*Original: [Six Steps to Freedom 自由六步](Six%20Steps%20to%20Freedom%20自由六步.md) · English translation of the Chinese by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](README.md)*
 
 > **About this document.** The original file gives two versions of the Six Steps, each in Chinese and in English. The English is Lester Levenson's own wording, and the Chinese was translated from it by Feng (the note at the end of the original says “Translation: Feng”). Below, for each step, the English already in the repository is shown first, exactly as it appears, followed by Claude's translation of Feng's Chinese. That way you can see where the Chinese stays close to Lester and where it adds to or changes him.
 

@@ -1,6 +1,6 @@
 # A Letter from Kam Bakhshi
 
-*Original: [Kam Bakhsh的一封信](Kam%20Bakhsh的一封信.md) · English translation of the Chinese by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](README-EN.md)*
+*Original: [Kam Bakhsh的一封信](Kam%20Bakhsh的一封信.md) · English translation of the Chinese by Claude (Anthropic, Opus 5.5), November 2026 · [Back to English contents](README.md)*
 
 > **About this document.** Kam Bakhshi, an Englishman, wrote this letter in English after going free through the Sedona Method. The original file has two parts: (1) a transcription of his English letter, titled “Image version” because it was copied from photographs of the letter, and (2) a Chinese section with translations and commentary. Part 1 below is kept exactly as it appears in the repository, including its original spelling slips. Part 2 is Claude's translation of the Chinese section.
 
