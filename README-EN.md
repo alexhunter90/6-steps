@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 11 of 72 documents translated.**
+**Progress: 12 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -22,7 +22,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Feng’s Talks on the Six Steps (6)](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E9%A3%8E%E5%AF%B9%E5%85%AD%E6%AD%A5%E9%AA%A4%E7%9A%84%E8%B0%88%E8%AF%9D%EF%BC%88%E5%85%AD%EF%BC%89.en.md)
 - [The Complete Map to Ultimate Freedom Using the Release Method](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%BD%BF%E7%94%A8%E9%87%8A%E6%94%BE%E6%B3%95%E5%88%B0%E8%BE%BE%E7%BB%88%E6%9E%81%E8%87%AA%E7%94%B1%E7%9A%84%E5%AE%8C%E6%95%B4%E5%9C%B0%E5%9B%BE.en.md)
 - [Lester’s Favourite, Most Practical Teaching: Getting Everything Just by Releasing](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E8%8E%B1%E6%96%AF%E7%89%B9%E6%9C%80%E5%96%9C%E6%AC%A2%E6%9C%80%E5%AE%9E%E8%B7%B5%E6%80%A7%E7%9A%84%E6%95%99%E5%AF%BC%EF%BC%9A%E4%BB%85%E4%BB%85%E9%80%9A%E8%BF%87%E9%87%8A%E6%94%BE%E8%8E%B7%E5%BE%97%E4%B8%80%E5%88%87.en.md)
-- Valuing Goals, and One Key to Setting Them *(not yet translated)*
+- [Valuing Goals, and One Key to Setting Them](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E9%87%8D%E8%A7%86%E7%9B%AE%E6%A0%87%E4%BB%A5%E5%8F%8A%E5%88%B6%E5%AE%9A%E7%9B%AE%E6%A0%87%E7%9A%84%E4%B8%80%E4%B8%AA%E5%85%B3%E9%94%AE.en.md)
 - Once You Fully Release on a Goal, You Know It’s Already Yours; Then You Automatically Go Hootless, and It Manifests *(not yet translated)*
 - The Original Release Method Is the Only Simple, Easy Way to Freedom in the World Today *(not yet translated)*
 - Conversations with the Master | Lester’s Teaching: Value Outer Confirmation — and the Whole Process of Reaching Freedom *(not yet translated)*
