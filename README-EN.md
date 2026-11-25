@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 55 of 72 documents translated.**
+**Progress: 56 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -72,7 +72,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [A Note on the Videos of the 1992 Original Release Method Course](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E5%85%B3%E4%BA%8E92%E5%B9%B4%E5%8E%9F%E5%A7%8B%E9%87%8A%E6%94%BE%E6%B3%95%E8%AF%BE%E7%A8%8B%E8%A7%86%E9%A2%91%E7%9A%84%E8%AF%B4%E6%98%8E.en.md)
 - [The Six Steps to Freedom](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/The%20Six%20Steps%20to%20Freedom%20%E8%87%AA%E7%94%B1%E5%85%AD%E6%AD%A5%E9%AA%A4.en.md)
 - [About the Six Steps](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E5%85%B3%E4%BA%8E%E5%85%AD%E6%AD%A5%E9%AA%A4.en.md)
-- Feng on the Six Steps: Step 1 *(not yet translated)*
+- [Feng on the Six Steps: Step 1](%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4/%E9%A3%8E%E8%B0%88%E5%85%AD%E6%AD%A5%E9%AA%A4%20Step%201.en.md)
 - Feng on the Six Steps: Step 2 *(not yet translated)*
 - Feng on the Six Steps: Step 3 *(not yet translated)*
 - Feng on the Six Steps: Step 4 *(not yet translated)*
