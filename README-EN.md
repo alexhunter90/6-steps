@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 16 of 72 documents translated.**
+**Progress: 17 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -27,7 +27,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [The Original Release Method Is the Only Simple, Easy Way to Freedom in the World Today](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E5%8E%9F%E5%A7%8B%E9%87%8A%E6%94%BE%E6%B3%95%E6%98%AF%E5%BD%93%E4%BB%8A%E4%B8%96%E4%B8%8A%E5%94%AF%E4%B8%80%E4%B8%80%E4%B8%AA%E7%AE%80%E5%8D%95%E6%98%93%E8%A1%8C%E5%88%B0%E8%BE%BE%E8%87%AA%E7%94%B1%E7%9A%84%E6%96%B9%E6%B3%95.en.md)
 - [Conversations with the Master | Lester’s Teaching: Value Outer Confirmation — and the Whole Process of Reaching Freedom](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%B8%8E%E5%A4%A7%E5%B8%88%E7%9A%84%E5%AF%B9%E8%AF%9D%EF%BC%9A%E8%8E%B1%E6%96%AF%E7%89%B9%E7%9A%84%E6%95%99%E5%AF%BC%E8%A6%81%E9%87%8D%E8%A7%86%E5%A4%96%E9%83%A8%E7%A1%AE%E8%AE%A4%E4%BB%A5%E5%8F%8A%E8%BE%BE%E5%88%B0%E8%87%AA%E7%94%B1%E7%9A%84%E5%85%A8%E8%BF%87%E7%A8%8B.en.md)
 - [Conversations with the Master | The Enlightened One Is All-Knowing, All-Powerful and Everywhere Present](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%B8%8E%E5%A4%A7%E5%B8%88%E7%9A%84%E5%AF%B9%E8%AF%9D%EF%BC%9A%E5%BC%80%E6%82%9F%E8%80%85%E6%98%AF%E5%85%A8%E7%9F%A5%E5%85%A8%E8%83%BD%E5%85%A8%E5%9C%A8%E7%9A%84.en.md)
-- Conversations with the Master | Awakening Is Entirely Free Will; Once Free, Free Forever *(not yet translated)*
+- [Conversations with the Master | Awakening Is Entirely Free Will; Once Free, Free Forever](%E5%85%AC%E4%BC%97%E5%8F%B7%E8%87%AA%E7%94%B1%E7%9A%84%E6%8D%B7%E5%BE%84/%E4%B8%8E%E5%A4%A7%E5%B8%88%E7%9A%84%E5%AF%B9%E8%AF%9D%EF%BC%9A%E8%A7%89%E9%86%92%E6%98%AF%E5%AE%8C%E5%85%A8%E7%9A%84%E8%87%AA%E7%94%B1%E6%84%8F%E5%BF%97%EF%BC%8C%E4%B8%80%E6%97%A6%E8%8E%B7%E5%BE%97%E8%87%AA%E7%94%B1%EF%BC%8C%E5%B0%B1%E6%B0%B8%E8%BF%9C%E8%87%AA%E7%94%B1.en.md)
 - Conversations with the Master | Every Time You Release, You Help Everyone and the Harmonious Working of the Universe *(not yet translated)*
 - Conversations with the Master | From 1970 to 2090, Only the Release Method Can Take You to Freedom *(not yet translated)*
 - Conversations with the Master | The Secret of Success in Going Free, and the Departure of the Masters *(not yet translated)*
