@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 24 of 72 documents translated.**
+**Progress: 25 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -38,7 +38,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [The Six Steps to Freedom](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E8%87%AA%E7%94%B1%E5%85%AD%E6%AD%A5%E9%AA%A4.en.md)
 - [How to Do and Achieve Step One of the Six Steps (1)](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E5%A6%82%E4%BD%95%E5%81%9A%E5%88%B0%E5%B9%B6%E8%BE%BE%E6%88%90%E5%85%AD%E6%AD%A5%E9%AA%A4%E7%AC%AC%E4%B8%80%E6%AD%A5%EF%BC%9F%EF%BC%88%E4%B8%80%EF%BC%89.en.md)
 - [The Profound Effect of the Release Method on Every Area of Life](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E9%87%8A%E6%94%BE%E6%B3%95%E5%AF%B9%E7%94%9F%E6%B4%BB%E5%90%84%E6%96%B9%E9%9D%A2%E7%9A%84%E6%B7%B1%E8%BF%9C%E5%BD%B1%E5%93%8D.en.md)
-- Feng’s Path of Exploration in Search of Freedom *(not yet translated)*
+- [Feng’s Path of Exploration in Search of Freedom](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E9%A3%8E%E8%BF%BD%E6%B1%82%E8%87%AA%E7%94%B1%E7%9A%84%E6%8E%A2%E7%B4%A2%E4%B9%8B%E8%B7%AF.en.md)
 - Untitled (31 December 2021) *(not yet translated)*
 - [On Freedom] Why Do I Play This Game of Being a Limited Body? *(not yet translated)*
 - You Can’t Force Yourself to Release — You Release Only When You See What It Does for You, So Keep Confirming Your Gains and Your Direction *(not yet translated)*
