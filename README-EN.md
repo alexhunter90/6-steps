@@ -3,7 +3,7 @@
 English translations of the Chinese documents in this repository, in the same order as the original [README](README.md).
 Translations are by Claude (Anthropic, model Opus 5.5), November 2026. Each translation sits next to its Chinese original with the ending `.en.md`.
 Where a document already contained English — Lester Levenson’s own words, or Kam Bakhshi’s letter — that English is kept exactly as it was and shown alongside the new translation.
-**Progress: 31 of 72 documents translated.**
+**Progress: 32 of 72 documents translated.**
 
 
 A note on names: **Feng** (风) is the teacher whose talks make up most of this collection; his name means “Wind”. “The Release Method” (释放法) is the Sedona Method as originally taught by Lester Levenson.
@@ -45,7 +45,7 @@ A note on names: **Feng** (风) is the teacher whose talks make up most of this 
 - [Follow the Process: Just Release Well This One Time, Right Now](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E6%8C%89%E7%85%A7%E6%B5%81%E7%A8%8B%EF%BC%8C%E9%87%8A%E6%94%BE%E5%A5%BD%E5%BD%93%E4%B8%8B%E8%BF%99%E4%B8%80%E6%AC%A1%E5%B0%B1%E5%A5%BD.en.md)
 - [Constant Releasing Is Important — and Simple](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E6%8C%81%E7%BB%AD%E9%87%8A%E6%94%BE%E5%BE%88%E9%87%8D%E8%A6%81%EF%BC%8C%E4%B9%9F%E5%BE%88%E7%AE%80%E5%8D%95.en.md)
 - [When You Release Constantly, You Withdraw Automatically; When You Resolve to Go Within, Nothing and No One Can Disturb You](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E5%BD%93%E4%BD%A0%E6%8C%81%E7%BB%AD%E9%87%8A%E6%94%BE%EF%BC%8C%E4%BD%A0%E4%BC%9A%E8%87%AA%E5%8A%A8%E9%9A%94%E7%A6%BB%EF%BC%9B%E5%BD%93%E4%BD%A0%E5%86%B3%E5%BF%83%E5%90%91%E5%86%85%EF%BC%8C%E6%B2%A1%E6%9C%89%E4%BB%BB%E4%BD%95%E4%BA%BA%E4%BA%8B%E7%89%A9%E8%83%BD%E6%89%93%E6%89%B0%E4%BD%A0.en.md)
-- Feng Shares: On Resisting, Being Unwilling, and Avoiding Releasing *(not yet translated)*
+- [Feng Shares: On Resisting, Being Unwilling, and Avoiding Releasing](%E5%85%AC%E4%BC%97%E5%8F%B7%E9%87%8A%E6%94%BE%E6%B3%95%E9%92%BB%E7%9F%B3%E5%B2%9B/%E9%A3%8E%E7%9A%84%E5%88%86%E4%BA%AB%EF%BC%9A%E5%85%B3%E4%BA%8E%E6%8A%97%E6%8B%92%E3%80%81%E4%B8%8D%E6%84%BF%E6%84%8F%E3%80%81%E9%80%83%E9%81%BF%E9%87%8A%E6%94%BE.en.md)
 - Achieving Step One Corresponds to “Stream-Entry” in the Āgama Sutras and “Nirvikalpa Samadhi” in Yogic Science *(not yet translated)*
 - Why Does the Sedona Method Stress the Word “Original”? *(not yet translated)*
 - Feng on the Six Steps, Part 1 | Editor’s Preface: Release by Following the Six Steps All the Way *(not yet translated)*
